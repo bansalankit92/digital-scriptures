@@ -44,7 +44,7 @@ const config = {
           // Please change this to your repo.
           // Remove this to remove the "edit this page" links.
           editUrl:
-            'https://github.com/bansalankit92/digital-scriptures/docs',
+            'https://github.com/bansalankit92/digital-scriptures/docs/',
         },
         blog: {
           showReadingTime: true,
@@ -76,19 +76,19 @@ const config = {
             to: '/docs/kabir-mansoor/intro',
             position: 'left',
             label: 'Kabir Mansoor',
-            activeBaseRegex: 'kabir-mansoor',
+            // activeBaseRegex: 'kabir-mansoor',
           },
           {
             to: '/docs/kabir-krishna-geeta/intro',
             position: 'left',
             label: 'Kabir Krishna Geeta',
-            activeBaseRegex: 'kabir-geeta',
+            // activeBaseRegex: 'kabir-geeta',
           },
           {
             to: '/docs/kabir-sagar/intro',
             position: 'left',
             label: 'Kabir Sagar',
-            activeBaseRegex: 'kabir-sagar',
+            // activeBaseRegex: 'kabir-sagar',
           },
 
           {to: '/blog', label: 'Blog', position: 'left'},
@@ -107,7 +107,7 @@ const config = {
             items: [
               {
                 label: 'Kabir Krishna Geeta',
-                to: '/kabir-krishna-geeta/intro',
+                to: '/docs/kabir-krishna-geeta/intro',
               },
             ],
           },
