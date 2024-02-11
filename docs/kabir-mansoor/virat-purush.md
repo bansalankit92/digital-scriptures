@@ -2,9 +2,9 @@
 sidebar_position: 3
 ---
 
-# Satyalok and Universe
+# Virat Purush Body
 
-* विराट पुरुष - पृष्ठ ३९६*  
+* विराट पुरुष - पृष्ठ ३९६ 
 
 ![Blueprint of Universe (Human body ~ Universe Blueprint)](../../static/img/kabirmansoor/virat-purush-page-3.png)
 
