@@ -20,7 +20,7 @@ const config = {
 
   // GitHub pages deployment config.
   // If you aren't using GitHub pages, you don't need these.
-  organizationName: 'bansalankit93', // Usually your GitHub org/user name.
+  organizationName: 'bansalankit92', // Usually your GitHub org/user name.
   projectName: 'Digital Scriptures', // Usually your repo name.
 
   onBrokenLinks: 'throw',
@@ -44,14 +44,14 @@ const config = {
           // Please change this to your repo.
           // Remove this to remove the "edit this page" links.
           editUrl:
-            'https://github.com/facebook/docusaurus/tree/main/packages/create-docusaurus/templates/shared/',
+            'https://github.com/bansalankit92/digital-scriptures/docs',
         },
         blog: {
           showReadingTime: true,
           // Please change this to your repo.
           // Remove this to remove the "edit this page" links.
-          editUrl:
-            'https://github.com/facebook/docusaurus/tree/main/packages/create-docusaurus/templates/shared/',
+          // editUrl:
+          //   'https://github.com/facebook/docusaurus/tree/main/packages/create-docusaurus/templates/shared/',
         },
         theme: {
           customCss: './src/css/custom.css',
@@ -81,7 +81,7 @@ const config = {
           {
             to: '/docs/kabir-krishna-geeta/intro',
             position: 'left',
-            label: 'Kabir Geeta',
+            label: 'Kabir Krishna Geeta',
             activeBaseRegex: 'kabir-geeta',
           },
           {
@@ -106,7 +106,7 @@ const config = {
             title: 'Docs',
             items: [
               {
-                label: 'Kabir Geeta',
+                label: 'Kabir Krishna Geeta',
                 to: '/kabir-krishna-geeta/intro',
               },
             ],
