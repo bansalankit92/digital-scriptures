@@ -2,7 +2,7 @@
 sidebar_position: 1
 ---
 
-# Kabir Mansoor
+# Kabir Mansoor / कबीर मन्शूर
 
 Let's discover **Sant Kabir from Kabir Mansoor**. [Book Link](https://archive.org/details/HindiBookKABIRMANSOORComplete)
 
