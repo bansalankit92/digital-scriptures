@@ -91,7 +91,7 @@ const config = {
             // activeBaseRegex: 'kabir-sagar',
           },
 
-          {to: '/blog', label: 'Blog', position: 'left'},
+          // {to: '/blog', label: 'Blog', position: 'left'},
           // {
           //   href: 'https://github.com/bansalankit92/digital-scriptures',
           //   label: 'GitHub',
