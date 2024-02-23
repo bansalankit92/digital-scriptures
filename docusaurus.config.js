@@ -8,7 +8,7 @@ import {themes as prismThemes} from 'prism-react-renderer';
 
 /** @type {import('@docusaurus/types').Config} */
 const config = {
-  title: 'Satya Bhakti | Demystifying Sant Words',
+  title: 'Satya Bhakti',
   tagline: 'Raising Spiritual Awareness',
   favicon: 'img/favicon.ico',
 
@@ -64,7 +64,7 @@ const config = {
     /** @type {import('@docusaurus/preset-classic').ThemeConfig} */
     ({
       // Replace with your project's social card
-      image: 'img/docusaurus-social-card.jpg',
+      image: 'img/india-sants.png',
       navbar: {
         title: '',
         logo: {
