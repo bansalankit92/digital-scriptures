@@ -19,7 +19,7 @@ function HomepageHeader() {
         <div className={styles.buttons}>
           <Link
             className="button button--secondary button--lg"
-            to="/">
+            to="/docs/kabir-mansoor">
             Kabir Mansoor
           </Link>
         </div>
@@ -32,7 +32,7 @@ export default function Home() {
   const {siteConfig} = useDocusaurusContext();
   return (
     <Layout
-      title={`${siteConfig.title}`}
+      title=''
       description={`${siteConfig.tagline}`}>
       <HomepageHeader />
       <main>
