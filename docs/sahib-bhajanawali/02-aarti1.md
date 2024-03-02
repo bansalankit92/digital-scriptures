@@ -3,11 +3,16 @@ title: 'आरती करहूँ संत सदगुरु की'
 slug: 'aarti-01'
 description: Sahibji Aarti 01 - Aarti karu sant satguru ki
 keywords: ["Sahibji","Aarti","आरती","Sahib Bandgi Aarti","Sant Kabir Aarti"]
-sidebar_position: 2
 ---
 
 
 # Sahibji आरती 1
+
+## Video
+
+<iframe width="100%" height="424" src="https://www.youtube.com/embed/QG_PDj58ON4" title="AUDIO &quot;AARTI KAROON HOON SANT SATGURU KI&quot;" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
+
+## Lyrics
 
 
 आरती करहूँ संत सतगुरु की, सतगुरु सत्यनाम दिनकर की।  
