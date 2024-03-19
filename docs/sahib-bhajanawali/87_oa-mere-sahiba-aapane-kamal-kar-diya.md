@@ -43,7 +43,7 @@ slug: oa-mere-sahiba-aapane-kamal-kar-diya
     han khushahal kar diya oa ho-5.  
     oa mere sahiba.......  
   
-    hamari sooni ranjadai ko svarg banaya aapane-2  
+    hamari sooni ranjadi ko svarg banaya aapane-2  
     ham bhatakon ko sataguroo rah dikhaya aapane  
     aapane aisa kar dikhaya hamen hairan kar diya  
     han khushahal kar diya o-o-o-5.  

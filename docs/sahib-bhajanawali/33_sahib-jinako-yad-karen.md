@@ -30,14 +30,14 @@ slug: sahib-jinako-yad-karen
     sahib jinako yad karen vo log nirale hote hain.  
     sahib jinaka nam pukaren vo kismat vale hote hain.  
     chalo sandesha aaya hai sahib ne bulaya hain.  
-    oa ranjadai men mere sataguru ji ne darabar sajaya hai...........  
+    oa ranjadi men mere sataguru ji ne darabar sajaya hai...........  
     bhav se par nahin kar sakata sataguru ke bin aur koe.  
     prabhu rute to guru ko mana lo guru rute nahin taur koe  
     sataguru ki mahima ka varnan sab santon ne gaya hai............  
     sahib nam de chhutakara kal-jal janjalon se  
     satsang men aakar mil jate uttar sabhi savalon ke.  
     tvand bhare jivan ki sari ulajhhan ko sulajhhaya hai...........  
-    ranjadai vale ke dvare pe bhale bur sab aate hain  
+    ranjadi vale ke dvare pe bhale bur sab aate hain  
     vo sahib ka nam pate hin sahib may ho jate hain.  
     oa sat niyam ki maryada men rahana sabako sikhaya hai..........  
     main kya usaka gunagan karoon, jisako ved na ga paean.  
