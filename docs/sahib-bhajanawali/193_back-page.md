@@ -2,16 +2,17 @@
 title: "Back Page - नाम देते समय आखिर सतगुरु क्या करते हैं"
 keywords: ["नाम देते समय आखिर सतगुरु क्या करते हैं","Sahibji","Bhajan","Sahib Bandgi Bhajan","Sant Kabir Bhajan","bhajan lyrics","साहिब बंदगी भजन","भजन"]
 description: नाम देते समय आखिर सतगुरु क्या करते हैं ? १. मन और आत्मा अलग करना २. हृदय प्रकाशित करना ३. सुरक्षा (कम्पलीट सिक्योरिटी )  जो ऐसा नहीं कर सकता है वह पहुँचा हुआ संत नहीं हैं।
-slug: naam-dete-samay-guru-kya-karte-hai?
+slug: naam-dete-samay-guru-kya-karte-hai
 ---
 
-  
+# नाम देते समय आखिर सतगुरु क्या करते हैं ?
+
 ```text  
     गुरु सजीवन नाम बताए      
-    जाके बल हंसा घर  जाए   
+    जाके बल हंसा घर जाए   
 ```  
   
-नाम देते समय आखिर सतगुरु क्या करते हैं ?  
+ 
 १. पहले सेवक की सुरति को मसलते हैं | जिन सात स्थानों पर मन ने सूरती को  अपने में उलझा रखा था वहाँ से छुड़ा लेते हैं। इस तरह आत्मा को मन से अलग कर देते हैं और अपनी सुरति के साथ मिला देते हैं।  
 २. सुरति को चेतन कर देते है, जिससे हृदय प्रकाशित हो जाता हैं।  इस तरह मन के सारे विकर समझ आने लगते है।  
 ३. नाम के समय उस सुपर पॉवर को ही साथ कर देते है, जो शिष्य को सोते और जागते हुए पक्के तौर से सुरक्षा करती हैं।  
@@ -51,12 +52,12 @@ nam dete samay aakhir sataguru kya karate hain ?
 ```  
   
 nam kya chij hai ?  
-sataguru ki surati men sistam hain.  
+sataguru ki surati men system hain.  
   
 **nam dan ke samay**  
 1. man aur aatma alag karana  
 2. hrriday prakashit karana  
-3. suraksha (kampalit sikyoriti )  
+3. suraksha (complete security )  
 jo aisa nahin kar sakata hai vah pahunacha huaa sant nahin hain.  
   
 
