@@ -59,6 +59,10 @@ sataguru ki surati mein system hain.
 2. hrriday prakashit karana  
 3. suraksha (complete security )  
 jo aisa nahin kar sakata hai vah pahunacha huaa sant nahin hain.  
-  
 
-  
+
+## References
+This Book is owned by Sahibji -> https://sahibbandgi.org
+
+PDF: https://drive.google.com/file/d/1715t3usWaThZDBpoiqOOMOouISH-VyFY/view
+Website: https://sahibbandgi.org/sahibBandgi-HindiEbooks.htm
