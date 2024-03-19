@@ -29,11 +29,11 @@ slug: guroovar-tumhi-ho-tera-hai-sahara
     tune har sankat tare, koe nahin chinta hame, jo too hai hamara .a.  
     guroovar tumhi ho.........  
   
-    aaankhon men chhavi teri, man men basera, har sans par likha hai nam tera.  
+    aaankhon mein chhavi teri, man mein basera, har sans par likha hai nam tera.  
     chahe jae pran mere, chhine nahin kabhi bhi. bhakti ka ujiyara, too hai hamara.  
     guroovar tumhi ho.......  
   
-    shanti mili hai sada, teri hi sharan men, sukh-sansar paya, tere hi charan men |  
+    shanti mili hai sada, teri hi sharan men, sukh-sansar paya, tere hi charan mein |  
     jivan ki nadi men, ulajhhan ki dhara, aur too hai kinara, too hai hamara.a.  
     guroovar tumhi ho.......  
     liya tera nam to chha jae bhakti, shraddha ke phool khile, jibha se tira.  

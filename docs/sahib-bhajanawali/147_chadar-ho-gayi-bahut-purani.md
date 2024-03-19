@@ -27,10 +27,10 @@ slug: chadar-ho-gayi-bahut-purani
     ajab julahe chadar bini, soot karam ki tani.  
     soorati nirati ka bharana dinha, tab sabake manamani  1    
   
-    maile dag pare papan ke, vishayan men lapatani.  
+    maile dag pare papan ke, vishayan mein lapatani.  
     jnjan ka saboon lay na dhoya, satsangati ki pani  2॥.  
   
-    bhae kharab aab gae sari, lobh moh men sani  
+    bhae kharab aab gae sari, lobh moh mein sani  
     sari umar odhaate biti, bhali buri nahin jani  3    
   
     shanka mani jani jiy apane, hai yah bastu birani.  

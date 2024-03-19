@@ -27,11 +27,11 @@ yehi kayagadha men, nanadiya bhaili bairi
 gaili bajaar kachhoo, sauda na kaili  
 aavat-jat men, kati gaili pairi   yehi ...   1   
   
-naihare se ham, sasur men gaili  
+naihare se ham, sasur mein gaili  
 devag kahela, kaisan bhauji aili | yehi ...   2॥.  
   
-seva kare men yah, dehiya sukhavali  
-kohavar men jaike, bhasura ke khaili   yehi ...   3॥.  
+seva kare mein yah, dehiya sukhavali  
+kohavar mein jaike, bhasura ke khaili   yehi ...   3॥.  
   
 dharm hi das guru se, arajiya kaili  
 saniya ji ke le ke, alag ghar basavali .a yehi ...   ४    

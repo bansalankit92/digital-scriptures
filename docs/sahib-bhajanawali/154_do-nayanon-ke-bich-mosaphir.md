@@ -47,7 +47,7 @@ slug: do-nayanon-ke-bich-mosaphir
     ladiya sagari rahigai ho   do nayanon ke ....   4    
   
     panach sakhi mili kaili salamat, baite janagha jor  
-    kahahin kabir suno bhae sadho ! itane men hogai bhora.  
+    kahahin kabir suno bhae sadho ! itane mein hogai bhora.  
     nam sataguru ke rahigai ho do nayanon ke ....   5    
 
   

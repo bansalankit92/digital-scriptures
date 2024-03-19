@@ -27,13 +27,13 @@ slug: ab-to-sahib-ji-paar-bedaa-kijie
 
   
    ab ton sahib ji paar bedaa kijie-2  
-   das ko apani sharan men lijie-2  
+   das ko apani sharan mein lijie-2  
   
    tha bhatakata ab tak janjal main,  
    mukti ab to nath meri kaujie-2  
    das ko apani.........  
   
-   hain phansi sansar men naiyya meri,  
+   hain phansi sansar mein naiyya meri,  
    par isako hain sahib ji kar dijie-2  
    das ko apani....................  
   

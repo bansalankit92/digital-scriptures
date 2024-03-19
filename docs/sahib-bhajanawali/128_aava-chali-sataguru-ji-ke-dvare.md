@@ -19,7 +19,7 @@ slug: aava-chali-sataguru-ji-ke-dvare
 aava chali sataguru ji ke dvare     
 guru ji milihain ta jnjan bataihain, janam jugan ki hoy bali  3    
 udai chala hansa mansarovar, phoolava phoolailain jahan kusum kali  2   
-is kaya nagari men das daravaja, hansa nikari gayo kaun gali  3 .!  
+is kaya nagari mein das daravaja, hansa nikari gayo kaun gali  3 .!  
 dharmadas araji kari binave, aaj bhajaniyan khub bani ४    
 
   

@@ -21,7 +21,7 @@ slug: ek-din-gavana-jaiboo-chhodai-ke
   
 ek din gavana jaiboo chhodai ke, nagariya ho ye goriya.  
 dagariya samhari ke chala, gori lalaki le aihain tor savariya ho  dagariya...    
-piyava se na aanakhi milaiboo, doli men baitaval jaiboo.  
+piyava se na aanakhi milaiboo, doli mein baitaval jaiboo.  
 chhooti jae bap mahatariya ho ye goriya  dagariya ...   2  
 balam hai bahutai niroovari, kholi ke dekhi kurati sadai  
 tab dekhave ke pari, kholi ke gatariya ho   dagariya ...   3   

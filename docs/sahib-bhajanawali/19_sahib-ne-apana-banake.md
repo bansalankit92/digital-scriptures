@@ -24,12 +24,12 @@ slug: sahib-ne-apana-banake
 ## Transliteration
     
     sahib ne apana banake hamako muskurana sikha diya.  
-    aandhere ghar men sahib ne hansake chirag jaise jala diya --sahib ne.............  
+    aandhere ghar mein sahib ne hansake chirag jaise jala diya --sahib ne.............  
   
     vo rang bharate hain jindagi men, badal gaya hai mera jahan |  
     sahib sitare luta rahe the, hamane daman bichha diya --sahib ne.............  
   
-    maya ne parade men hamako ghera, sahib ne parada uta diya.  
+    maya ne parade mein hamako ghera, sahib ne parada uta diya.  
     ab to ye ham samajhh gae hain,  
     sahib ko hamane hai pa liya. --sahib ne......  
   

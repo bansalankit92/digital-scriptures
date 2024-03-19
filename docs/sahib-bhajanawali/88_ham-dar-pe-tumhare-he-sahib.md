@@ -35,7 +35,7 @@ slug: ham-dar-pe-tumhare-he-sahib
     ham dar pe tumhare...........  
   
     banh na pakadaoge sahib, duniya doobe to doobe  
-    hai aapake hathon men nav meri, ik nam sahare baite hain.  
+    hai aapake hathon mein nav meri, ik nam sahare baite hain.  
     ham dar pe tumhare...........  
   
     ea mangane valon kya loge, ham amaralok ke vasi hain  

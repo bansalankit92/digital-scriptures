@@ -21,7 +21,7 @@ mo sam kavan kutil khal kami
 jin tan diyo tahi bisarayon, aiso namak harami  1   
 bhari-bhari udar vishay ko dhaye, jaise sookar grami  2   
 harijan chhadai hari vimukhan ki, nish din karat gulami  3   
-papi kaun badaa jag mote, sab patitan men nami  ४   
+papi kaun badaa jag mote, sab patitan mein nami  ४   
 soor patit ko tor kahan hai, tum binu shri pati svami  5   
 
   

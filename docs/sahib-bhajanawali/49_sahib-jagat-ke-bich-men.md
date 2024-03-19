@@ -31,10 +31,10 @@ slug: sahib-jagat-ke-bich-men
   
 ik tera nam sar hai-2. sahib jagat ke.........  
     roopavanti nariyan, ye karati nit singar  
-    so tan-jal rakh ho gaya re, diyo chitta men dal .a.  
+    so tan-jal rakh ho gaya re, diyo chitta mein dal .a.  
 ik tera nam sar hai-2. sahib jagat ke.................  
     ravan jaisa papi mare, jisake man ahankar  
-    mitti men sab mil gaya re, palak na lagi bar .a.  
+    mitti mein sab mil gaya re, palak na lagi bar .a.  
 ik tera nam sar hai-2. sahib jagat ke...........  
     sooraj, tare, chandrama, ye nashvar sab sansar |  
     sahib sada rahe, too ajar hai, too sacha karatara.a.  

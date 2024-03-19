@@ -27,18 +27,18 @@ slug: shri-charanon-ko-pakharane-ka
 
   
     shri charanon ko pakharane ka avasar mujhhe bhi do.  
-    hrriday men apane dharane ka avasar mujhhe bhi do ॥  
+    hrriday mein apane dharane ka avasar mujhhe bhi do ॥  
   
     ujadaa huaa chaman jo ras se vihin tha,  
     charanon se teri prit ka isamen guroor tha.  
     karake daya tum guroor ko mujhhase vida karo ॥ shri   
     charanon ko.........  
       
-    teri charan raj men aake, nit lot lagaun main,  
+    teri charan raj mein aake, nit lot lagaun main,  
     nit nam jap ko tera hoton pe laun main.  
-    mere rom-rom men nam ka aisa nad bhar do ॥ shri charanon ko.......  
+    mere rom-rom mein nam ka aisa nad bhar do ॥ shri charanon ko.......  
       
-    moh-maya ke jal men kahin phanas na jaun main,  
+    moh-maya ke jal mein kahin phanas na jaun main,  
     janmon se hoon bhoola huaa phir bhool na jaun main.  
     karake krripa is das par jivan saphal kar do ॥ shri charanon ko  
 

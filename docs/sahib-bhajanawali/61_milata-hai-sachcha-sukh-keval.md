@@ -29,23 +29,23 @@ slug: milata-hai-sachcha-sukh-keval
 ## Transliteration
 
   
-    milata hain sachcha sukh keval, guroo dev tumhare charanon men  
-    yah vinati hai pal-pal chhin-chhin, rahe dhyan tumhare charanon men ॥  
+    milata hain sachcha sukh keval, guroo dev tumhare charanon mein  
+    yah vinati hai pal-pal chhin-chhin, rahe dhyan tumhare charanon mein ॥  
   
     chahe bairi kul sansar bane, chahe jivan mujhh par bhar bane  
-    chahe maut gale ka har bane, rahe dhyan tumhare charanon men ॥  
+    chahe maut gale ka har bane, rahe dhyan tumhare charanon mein ॥  
     yah vinati hai.........  
   
-    chahe aaangan men mujhhe jalana ho, chahe kanaton par mujhhe chalana ho.  
-    chahe chhoda ke desh nikalana ho, rahe dhyan tumhare charanon men ॥  
+    chahe aaangan mein mujhhe jalana ho, chahe kanaton par mujhhe chalana ho.  
+    chahe chhoda ke desh nikalana ho, rahe dhyan tumhare charanon mein ॥  
     yah vinati hai.........  
       
     chahe sankat ne mujhhe ghera ho, chahe charon or anadhera ho.  
-    par man nahin dagamag mera ho, rahe dhyan tumhare charanon men ॥|  
+    par man nahin dagamag mera ho, rahe dhyan tumhare charanon mein ॥|  
     yah vinati hai.........  
       
     jihva par tera nam rahe, ye dhyan subah aur sham rahe.  
-    meri nishta aaton yam rahe, rahe dhyan tumhare charanon men ॥  
+    meri nishta aaton yam rahe, rahe dhyan tumhare charanon mein ॥  
     yah vinati hai.........  
 
   

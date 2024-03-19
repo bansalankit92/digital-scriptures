@@ -30,7 +30,7 @@ slug: karam-gati-tare-nahin-tari
 karam gati tare nahin tari      
   
 muni basisht as pandit jnjani, sodhi ke lagan dhari.  
-sita haran maran dasharath ke, van men vipati pari  1   
+sita haran maran dasharath ke, van mein vipati pari  1   
   
 kahan vah phand kahan vah paridhi, kahan vah mirag chari.  
 sita ko hari liyo ravan, sone ki lank jari  2॥.  

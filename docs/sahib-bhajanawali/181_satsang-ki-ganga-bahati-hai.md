@@ -25,19 +25,19 @@ slug: satsang-ki-ganga-bahati-hai
 ## Transliteration
 
   
-    satsang ki ganga bahati hai, gurudev aap ke charanon men  
-    phal milata hai us tirath ka, kalyan aapake charanon men  1    
+    satsang ki ganga bahati hai, gurudev aap ke charanon mein  
+    phal milata hai us tirath ka, kalyan aapake charanon mein  1    
   
     main janam-janam bharamaya hoon, tab sharan aapake aaya hoona.  
-    in bhoole bhatake jivon ka, kalyan aapake charanon men  2   
+    in bhoole bhatake jivon ka, kalyan aapake charanon mein  2   
   
     dukhiyon ka dukh mitate ho, de divy drrishti parakhate ho  
-    tab aavagavan mitate ho, hai moksh aap ke charanon men  3    
+    tab aavagavan mitate ho, hai moksh aap ke charanon mein  3    
   
     ek bar jo darshan pata hai, bas aapahi ka ho jata hai.  
-    kya gupt tumhari priti hai, hai dhany aap ke charanon men  ४   
+    kya gupt tumhari priti hai, hai dhany aap ke charanon mein  ४   
   
     janmon ka bhoola sharan padaa, tab aakar aap ke dvar khadaa.  
-    kato sakalo bandhan mera, hai shish aap ke charanon men ॥5    
+    kato sakalo bandhan mera, hai shish aap ke charanon mein ॥5    
 
   

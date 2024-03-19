@@ -30,6 +30,6 @@ slug: pashchim-disha-ek-moti-ke-sugarava
     jay utaren ganga ghat par, kapadaa linha chhori.  
     bhae bandhu vimukh hoi baite, phoonaki dinha jaise hori   3    
     yam ke doot dihain dukh bhari, hath pair sab tori.   
-    kahahin kabir suno bhae sadho ! dari narak men bori   ४    
+    kahahin kabir suno bhae sadho ! dari narak mein bori   ४    
 
   

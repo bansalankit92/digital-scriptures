@@ -21,12 +21,12 @@ slug: janm-ke-matpita-hai
     
     janm ke mat-pita hai, aap karm ke data hain.  
     aap le jate hain satalok men, aape hi bhagy vidhata hain  
-    dukhi man ko lobhi tan ko, milata hai aaram, aapake charanon men  
+    dukhi man ko lobhi tan ko, milata hai aaram, aapake charanon mein  
     he guru dev pranam aap ke charanon men.  
   
     kamajaor ko balavan banado, moorkh ko gunavan sahib |  
     kamal aur bansi ko vi jnjan ka de varadan sahib  
-    hai mahadani hai maha jnjani rahamat ki ho shan aapake charanon men  
+    hai mahadani hai maha jnjani rahamat ki ho shan aapake charanon mein  
     he guru dev pranam aapake charanon men.  
 
   

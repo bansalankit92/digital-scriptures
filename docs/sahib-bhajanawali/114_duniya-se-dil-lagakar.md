@@ -33,7 +33,7 @@ slug: duniya-se-dil-lagakar
   
     daulat ho ya hukoomat, takat ho ya javani  
     har chija mitane vali, har chija aani jani.  
-    yah sab gurur ik din, mitti men ja milega.  
+    yah sab gurur ik din, mitti mein ja milega.  
     sadaguru ka dhyan kar le tujhhe aasara milega. duniya se...........  
   
     sahib jisako too samajhhe apana, vo to hai jhhoota sapana.  

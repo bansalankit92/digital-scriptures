@@ -23,7 +23,7 @@ slug: japo-re-man-keval-nam-kabir
 
   
     japo re man keval nam kabir .|    
-    kashi men guru pragat bhayo hain, aiso jnjan ganbhir  
+    kashi mein guru pragat bhayo hain, aiso jnjan ganbhir  
     taji kashi magahar ko aaye, dou dinan ke pir 1    
     koe gadae koe agin jarave, kahoo na dharata dhira.  
     chari dag se sataguru nyay, ajar amar sharir  2   
@@ -31,7 +31,7 @@ slug: japo-re-man-keval-nam-kabir
     soor nar muni sab chhakit bhayo hain, chhaki gayo jamuna nira. .3    
     navo nath chaurasi siddha, hati gayo bavan bira.  
     hari ke panda jarat ubare, apane charan dhare nir ४    
-    jagannadh men mandir thape, hati gayo sagar nira.  
+    jagannadh mein mandir thape, hati gayo sagar nira.  
     das malook salok kahatu hai, khojahu khasam kabir .॥5    
 
   

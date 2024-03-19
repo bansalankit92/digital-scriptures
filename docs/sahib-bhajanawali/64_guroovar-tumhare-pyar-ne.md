@@ -29,7 +29,7 @@ slug: guroovar-tumhare-pyar-ne
     guroovar tumhare pyar ne, jina sikha diya.  
     mujhhako tumhare pyar ne, insa bana diya ॥  
   
-    rahate hain jalave aapake najaron men har ghadai  
+    rahate hain jalave aapake najaron mein har ghadai  
     masti ka jam aapane aisa pila diya॥ mujhhako tumhare..........  
   
     bhoola huaa tha rasta bhataka huaa tha main  

@@ -18,8 +18,8 @@ slug: sataguru-aili-mor-baniyan
   
     sataguru aili mor baniyan, ham dhana hoibo gahakiniya .ateka   
     kavane kamal se sataguru mor aili, kahavan chhaveli dukaniya 1    
-    soorati kamal se sataguru mor aili, trikuti men chhaveli dukaniya 2   
-    sataguru seva lagi bandagi bajaibo, sangava men hoibo yoginiya 3 |  
+    soorati kamal se sataguru mor aili, trikuti mein chhaveli dukaniya 2   
+    sataguru seva lagi bandagi bajaibo, sangava mein hoibo yoginiya 3 |  
     dharam das araji karatu hain, rahabon main guru ke charaniyan ४    
 
   

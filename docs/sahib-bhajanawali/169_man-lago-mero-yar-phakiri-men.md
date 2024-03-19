@@ -18,12 +18,12 @@ slug: man-lago-mero-yar-phakiri-men
 ## Transliteration
 
   
-    man lago mero yar phakiri men      
-bhali buri sabaki suni lijai, kar gujaran garibi men  1    
-aakhir yah tan khak milega, kya phirat magaruri men  2   
-prem nagar men rahani hamari, charo disha jagiri men .3॥.  
-hath men kundi bagal men sota, charon disha jagiri men 4    
-jo sukh bande ram bhajan men, so sukh nahin amiri men ॥5    
-kahahin kabir suno bhae sadho ! saheb mile saboori men  6   
+    man lago mero yar phakiri mein      
+bhali buri sabaki suni lijai, kar gujaran garibi mein  1    
+aakhir yah tan khak milega, kya phirat magaruri mein  2   
+prem nagar mein rahani hamari, charo disha jagiri mein .3॥.  
+hath mein kundi bagal mein sota, charon disha jagiri mein 4    
+jo sukh bande ram bhajan men, so sukh nahin amiri mein ॥5    
+kahahin kabir suno bhae sadho ! saheb mile saboori mein  6   
 
   

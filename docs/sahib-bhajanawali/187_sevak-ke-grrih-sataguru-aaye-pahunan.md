@@ -33,7 +33,7 @@ slug: sevak-ke-grrih-sataguru-aaye-pahunan
   
     sir par khadaa hai sooratiya ke rasari ho,  
     sataguru bachan lihalon pakari-hansa satyanam bhajo ...   3    
-    dil dariyav men naval bhare pani ho,  
-    sataguru shabad men sani-hansa satyanam bhajo ...   ४    
+    dil dariyav mein naval bhare pani ho,  
+    sataguru shabad mein sani-hansa satyanam bhajo ...   ४    
 
   

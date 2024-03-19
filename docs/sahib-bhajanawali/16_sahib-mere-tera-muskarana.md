@@ -27,8 +27,8 @@ slug: sahib-mere-tera-muskarana
     sahib mere tera muskarana, bhool jane ke kabil nahin hai  
     chot khae hai hamare jo dil ne, vo dikhane ke kabil nahin hai.  
   
-    dekha jinhonne jalava tumhara, koe aaankhon men basata nahin hai.  
-    lakhon dekhe bahut noor vale, sare aalam men tumasa nahin hai. sahib mere tera......  
+    dekha jinhonne jalava tumhara, koe aaankhon mein basata nahin hai.  
+    lakhon dekhe bahut noor vale, sare aalam mein tumasa nahin hai. sahib mere tera......  
   
     poochha hamane ke phir kab miloge, thodaa musakaean phir hans ke bole  
     main to ghat ghat samaya huaa hoon, dhoonढ़ne ki jaroorat nahin hai ॥ sahib mere tera......  

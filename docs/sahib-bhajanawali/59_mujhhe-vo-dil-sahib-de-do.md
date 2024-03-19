@@ -45,11 +45,11 @@ slug: mujhhe-vo-dil-sahib-de-do
     mujhhe vo dil sahib de do.........  
   
     mujhhe sangat agar dena, to dena apane bhakton ki  
-    ki jinake dil ki har dhadaakan men bajata tar tera ho ॥  
+    ki jinake dil ki har dhadaakan mein bajata tar tera ho ॥  
     mujhhe vo dil sahib de do.........  
       
     mujhhe vo bakhsh do aanakhe, jinhen ho justajoo teri  
-    ki jaoare-jaren men karati, sirph didar tera ho॥  
+    ki jaoare-jaren mein karati, sirph didar tera ho॥  
     mujhhe vo dil sahib de do.........  
       
     rama lo apani sangat men, mujhhe yoon aia mere guroodeva.  

@@ -34,6 +34,6 @@ slug: sumiran-kari-le-too-mere-mana
     jaise pandit ved binu hona, vaise prani nam bina   3    
   
     kam krodh aur lobh moh sab, trrishna tyage sant jana.  
-    kahai kabir guru sharan bina, koe nahin jag men apana   5    
+    kahai kabir guru sharan bina, koe nahin jag mein apana   5    
 
   

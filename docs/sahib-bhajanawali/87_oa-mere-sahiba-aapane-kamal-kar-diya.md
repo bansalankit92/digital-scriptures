@@ -49,14 +49,14 @@ slug: oa-mere-sahiba-aapane-kamal-kar-diya
     han khushahal kar diya o-o-o-5.  
     oa mere sahiba..............  
   
-    sahiba aake kalayug men bhram mitaya aapane-2  
+    sahiba aake kalayug mein bhram mitaya aapane-2  
     sab jivon ko kal se aake chhudaaya aapane  
     aapane aisa shabd sunaya hamen aajad kar diya  
     han khushahal kar diya o-o-o-5. mere sahiba.......  
   
     man kya hai isaka sahiba bhed lakhaya aapane  
     bhay andhakar jo isamen door bhagaya aapane  
-    aapane aisa saty bataya sab men vishvas bhar diya  
+    aapane aisa saty bataya sab mein vishvas bhar diya  
     han khushahal kar diya o-o-o-5. mere sahiba........  
   
     ```  

@@ -28,7 +28,7 @@ slug: tan-pijadaa-aihain-na-kam
   
     tan pijadaa aihain na kam, bolata rami jaihain      
     jab lag bola tab lag dola, tab lag dhan vyavahara.  
-    chala jay phir bahuri na aave, mati men mati mili jae.  
+    chala jay phir bahuri na aave, mati mein mati mili jae.  
     boond as dhari jaihain, tan pijadaa aihain na kam ......   
   
     jagat riti jhhoota priti, koe subah koe sham  

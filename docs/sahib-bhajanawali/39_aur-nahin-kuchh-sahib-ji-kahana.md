@@ -36,7 +36,7 @@ slug: aur-nahin-kuchh-sahib-ji-kahana
   
     sahib ke bina sangat adhoori, mil jae sahib to mitati hai doori-2  
     sahib hin keval sataguru poore-2  
-    sahib ji ke charanon men mujhhe rahana-2 mere sahib..............  
+    sahib ji ke charanon mein mujhhe rahana-2 mere sahib..............  
   
     jab bhi dekhoon, sahib ko dekhoon, chhoda ke main jag sahib ko dekhoon-2  
     jab bhi dekhoon sahib ko dekhoon-2  

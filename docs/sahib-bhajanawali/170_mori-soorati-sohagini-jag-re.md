@@ -17,7 +17,7 @@ slug: mori-soorati-sohagini-jag-re
 
   
 mori soorati sohagini jag re     
-ka tum sovat moh nind men, uti ke bhajaniyan men lag re  1    
+ka tum sovat moh nind men, uti ke bhajaniyan mein lag re  1    
 chit se shabd sunon shravan de, utat madhur dhuni rag re  2॥.  
 dou kar jori shish charanan de, bhakti achal var mang re   3    
 kahahin kabir suno bhae sadho! jagat pit dai bhag re.   ४    

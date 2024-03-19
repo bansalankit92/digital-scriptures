@@ -22,11 +22,11 @@ slug: chha-jae-is-tarah-se
 ## Transliteration
 
   
-    chha jae is tarah se, tera pyar jindagi men  
+    chha jae is tarah se, tera pyar jindagi mein  
     doobe rahen hamesha, sahiba bandagi men. doobe rahen hamesha.................  
   
     sachcha hai nam tera, sachcha hai dham tera.  
-    sach ka hi karate jaean, prachar jindagi men doobe rahen hamesha......  
+    sach ka hi karate jaean, prachar jindagi mein doobe rahen hamesha......  
   
     sada ham chahate hain, teri krripa sahiban  
     too kar mehar aa jae, shrangar jindagi men. doobe rahen hamesha.......  

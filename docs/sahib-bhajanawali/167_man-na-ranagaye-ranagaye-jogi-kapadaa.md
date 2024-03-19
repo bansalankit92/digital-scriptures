@@ -18,7 +18,7 @@ slug: man-na-ranagaye-ranagaye-jogi-kapadaa
 
   
     man na ranagaye, ranagaye jogi kapadaa      
-    aasan mari mandir men baite, brahm chhadai poojan lage pathara  9॥.  
+    aasan mari mandir mein baite, brahm chhadai poojan lage pathara  9॥.  
     kanava pharay jogi jatava badhaavalain, dadhaiya badhaay jogi hogailain bakara 2    
     jangal jay jogi dhuniya ramavalain, kamava jaray jogi ho gadaalain hijara  3    
     madhava munadaay jogi kapadaa ranagavalain, gita bachi ke ho gadaalain labara ४    

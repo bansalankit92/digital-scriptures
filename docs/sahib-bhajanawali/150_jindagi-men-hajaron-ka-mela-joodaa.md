@@ -27,18 +27,18 @@ slug: jindagi-men-hajaron-ka-mela-joodaa
 ## Transliteration
 
   
-    jindagi men hajaron ka mela joodaa, hans jab-jab udaa tab akela udaa      
+    jindagi mein hajaron ka mela joodaa, hans jab-jab udaa tab akela udaa      
     raj raja rahen na oa rani rahin, kahane sunane ki keval kahani rahi  
     bastu har ek yahan aani jani rahi, na boodhaapa raha na javani rahi  
     char din ke liye jag jhhamela raha. hans jab-jab .......  
   
     tat sare ke sare padae rah gaye, koti banagale khadae ke khadae rah gaye.  
     un nagine jadae ke jadae rah gaye, kul khajana gadae ke gadae rah gaye.  
-    ant men lakhapati ke na adhela judaa   hans jab-jab .....  
+    ant mein lakhapati ke na adhela judaa   hans jab-jab .....  
   
     sochale-sochale apane aanjam ko, bhavaras ke bina jiv kis kam ko  
     paisa kaudai na lage bina dam ko, hamesha chintan karo apane nij ram ko  
-    saty nam bina chaurasi men joodaa   hans jab-jab .......  
+    saty nam bina chaurasi mein joodaa   hans jab-jab .......  
   
     bekason ke satane se kya phayada, ghor aparadh karane se kaya phayada.  
     dil kisi ka dukhane se kya phayada, nekikar bad kamane se kya phayada.  

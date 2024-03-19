@@ -25,19 +25,19 @@ slug: bhaiya-nam-sumir-la
 ## Transliteration
 
   
-bhaiya nam sumir la, aake yah sansar men  
-sataguru ke darabar men na      
+bhaiya nam sumir la, aake yah sansar mein  
+sataguru ke darabar mein na      
   
 sataguru ailain jnjan karavain, tuhake nam jahaj chadhaavain  
-pavar sabase jyada, sataguru ke patavar men na 1 ॥.  
+pavar sabase jyada, sataguru ke patavar mein na 1 ॥.  
   
-santaguru jugati ek batae, pal men alakh upadesh lakhae  
-tamase khinchi le aave, diyana ke ujiyar men 2    
+santaguru jugati ek batae, pal mein alakh upadesh lakhae  
+tamase khinchi le aave, diyana ke ujiyar mein 2    
   
-jaisan milalain sundar chola, vahi men sundar sumiran hola.  
-ye kahe khovat badaa, maya ke bajaar men  3    
+jaisan milalain sundar chola, vahi mein sundar sumiran hola.  
+ye kahe khovat badaa, maya ke bajaar mein  3    
   
-hansa svanas-svanas men bole, ab too chet le man bhole  
-kahen too bhooli gaila, maya ke bajaar men  ४    
+hansa svanas-svanas mein bole, ab too chet le man bhole  
+kahen too bhooli gaila, maya ke bajaar mein  ४    
 
   

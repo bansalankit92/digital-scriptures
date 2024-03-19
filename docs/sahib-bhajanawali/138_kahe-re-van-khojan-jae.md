@@ -20,7 +20,7 @@ slug: kahe-re-van-khojan-jae
 kahe re van khojan jae |   
 sarb nivasi sada alepa, toohin mahin samae.  
 pushp mahin jimi bas basatu hai, mukur mahin jimi chhahin.  
-vaise hi hari basat nirantar, ghatahi men khojo bhae  1   
+vaise hi hari basat nirantar, ghatahi mein khojo bhae  1   
 bahar bhitar ekai janon, yah guru jnjan lakhae.  
 jan nanak binu aapa chinhen, mite na bhram ki kae 2   
 

@@ -44,7 +44,7 @@ slug: guroo-kheva-hamari-naeya-jat-bahi
     aare khevan vala matavala sahi,  
     guroo kheva hamari........... are jat..........  
   
-    khenh ke lao sahib amar lok men  
+    khenh ke lao sahib amar lok mein  
     aavagaman hote na hi vahi  
     guroo kheva hamari........... are jat..........  
   

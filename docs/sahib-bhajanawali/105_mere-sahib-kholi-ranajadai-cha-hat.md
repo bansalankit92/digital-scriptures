@@ -45,7 +45,7 @@ slug: mere-sahib-kholi-ranajadai-cha-hat
   
     bhoong mata sant mata sahib batamada,  
     bhoonga jive kit phada shabd sunavada.  
-    sahib pal men kaya de palat adaio.  
+    sahib pal mein kaya de palat adaio.  
     nam deke chorasi.......  
   
     saty da jhhanda chuk sahib aap aa gaya,  
@@ -54,7 +54,7 @@ slug: mere-sahib-kholi-ranajadai-cha-hat
     nam deke chorasi........  
   
     10ven dvar tak kal ghera paya e,  
-    anahad nad men sabhi ulajhhaya e.  
+    anahad nad mein sabhi ulajhhaya e.  
     sahib 11ven ka bhed rahe das adaio.  
     nam deke chorasi.......  
   

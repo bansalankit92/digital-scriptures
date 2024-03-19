@@ -37,7 +37,7 @@ slug: achake-men-saniyan--mor
 ## Transliteration
 
   
-   achake men saniyan mor, patiya patavalain bolai ho lihalain na.  
+   achake mein saniyan mor, patiya patavalain bolai ho lihalain na.  
    bina din saitiya ke, bolae ho lihalain na     
   
    hare-hare basava ke doliya phanavalain, odhaae ho dihalain na.  
@@ -47,9 +47,9 @@ slug: achake-men-saniyan--mor
    hamaka asmasan ghatava, pahunachae ho dihalain na  2॥.  
   
    panach jane panach parikarama kailain,  
-   mukhava men agiya dharae ho dihalain na 3    
+   mukhava mein agiya dharae ho dihalain na 3    
   
-   das kabir gavan poovin men jhhoomarava, samujhhae ho dihalain na.  
+   das kabir gavan poovin mein jhhoomarava, samujhhae ho dihalain na.  
    bhajila prabhu ke he bhanavarava, samujhhae ho dihalain na ४    
   
    apane piya ke ham, bari dulari-ye kumatiya nanadi.  

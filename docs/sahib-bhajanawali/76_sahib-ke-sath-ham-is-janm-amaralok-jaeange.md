@@ -43,7 +43,7 @@ slug: sahib-ke-sath-ham-is-janm-amaralok-jaeange
     sahib ke sath ham...........  
   
     kal ne sahib se hamako le liya  
-    dal kar pinjore men roop apana de diya  
+    dal kar pinjore mein roop apana de diya  
     aa gaye sahiba lene hamako yahan  
     kal se chhoot jaeange-2  
     sahib ke sath ham...........  
@@ -55,12 +55,12 @@ slug: sahib-ke-sath-ham-is-janm-amaralok-jaeange
     sahib ke sath ham...........  
   
     dil ki aavaj too dil ka har saj too  
-    dil ki dhadaakan men too meri soorati men too  
+    dil ki dhadaakan mein too meri soorati mein too  
     ab na bhulenge ham aapakon sahiba  
-    tujhh men kho jaeange-2  
+    tujhh mein kho jaeange-2  
     sahib ke sath ham...........  
   
-    meri surati men too mere sumiran men too  
+    meri surati mein too mere sumiran mein too  
     mera darapan bhi too mere andar bhi too  
     ab na honge juda aapase sahiba  
     tere ho jaeange-2  

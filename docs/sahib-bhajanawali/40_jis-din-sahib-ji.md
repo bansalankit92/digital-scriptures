@@ -24,8 +24,8 @@ slug: jis-din-sahib-ji
   
     jis din sahib ji, tera darshan hoga,  
     us din saphal yah mera jivan hoga-2  
-    surati ke mandir men sahib ji tumako main basauangi,  
-    tere charanon men apana jivan main bitauangi.  
+    surati ke mandir mein sahib ji tumako main basauangi,  
+    tere charanon mein apana jivan main bitauangi.  
     tan man mera, tujhhe aparn hoga. usi din saphal.......  
     mera tera rishta sahib ji bahut hai purana.  
     mere sachche sahib ji mujhhe kabhi na bhulana.  

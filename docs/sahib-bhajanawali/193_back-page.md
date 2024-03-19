@@ -42,17 +42,17 @@ slug: naam-dete-samay-guru-kya-karte-hai
 ```  
   
 nam dete samay aakhir sataguru kya karate hain ?  
-1. pahale sevak ki surati ko masalate hain | jin sat sthanon par man ne soorati ko  apane men ulajhha rakha tha vahan se chhuड़a lete hain. is tarah aatma ko man se alag kar dete hain aur apani surati ke sath mila dete hain.  
+1. pahale sevak ki surati ko masalate hain | jin sat sthanon par man ne soorati ko  apane mein ulajhha rakha tha vahan se chhuड़a lete hain. is tarah aatma ko man se alag kar dete hain aur apani surati ke sath mila dete hain.  
 2. surati ko chetan kar dete hai, jisase hrriday prakashit ho jata hain.  is tarah man ke sare vikar samajhh aane lagate hai.  
 3. nam ke samay us supar paoavar ko hi sath kar dete hai, jo shishy ko sote aur jagate hue pakke taur se suraksha karati hain.  
   
 ```text  
-    man ko sansar men koe nahin jit sakata.    
+    man ko sansar mein koe nahin jit sakata.    
     manahin niranjan sabai nachavai. nam hoy toh math namavai   
 ```  
   
 nam kya chij hai ?  
-sataguru ki surati men system hain.  
+sataguru ki surati mein system hain.  
   
 **nam dan ke samay**  
 1. man aur aatma alag karana  

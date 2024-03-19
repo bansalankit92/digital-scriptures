@@ -55,9 +55,9 @@ slug: main-sunauan-tumhen-ijhhak-ajab-dastan
     kar achchhe karam, sahib ji sath hain,  
     tinon lokon se aage..........  
   
-    na jag men koe ho aakarshan, guroo charanon men ho bas samarpan,  
+    na jag mein koe ho aakarshan, guroo charanon mein ho bas samarpan,  
     tab hi jiv, bhav se, tar paega.  
-    jivatma vo hi, jag men dhany bhag hai,  
+    jivatma vo hi, jag mein dhany bhag hai,  
     tinon lokon se aage..........  
 
   

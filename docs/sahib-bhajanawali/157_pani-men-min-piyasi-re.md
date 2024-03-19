@@ -20,7 +20,7 @@ slug: pani-men-min-piyasi-re
 ## Transliteration
 
   
-pani men min piyasi re, mohi suni-suni aavat hanasi      
+pani mein min piyasi re, mohi suni-suni aavat hanasi      
 aatam jnjan bina nar bhatake, koe mathura koe kashi  
 jaise mrriga nabhi kasturi, van-van phirat udasi  6    
 jal bich kamal kamal bich kaliya, tapar bhanavar nivasi  

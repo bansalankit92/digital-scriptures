@@ -35,7 +35,7 @@ slug: mere-data-ke-darabar-men
 jo koe jaisi karani karata, vaisa hi phal pata   1    
   
 kya sadhu kya sant grrihasthi, kya raja kya rani |  
-prabhu ki pustak men likhi hai, sabaki karm kahani |  
+prabhu ki pustak mein likhi hai, sabaki karm kahani |  
 antaryami andar baita, sahi hisab lagata   mere ....   2   
   
 badae-badae kanoon prabhu ke, badai -badai maryada  

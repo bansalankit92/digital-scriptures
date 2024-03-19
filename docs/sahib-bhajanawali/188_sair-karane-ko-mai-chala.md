@@ -39,7 +39,7 @@ slug: sair-karane-ko-mai-chala
 ## Transliteration
 
   
-    sair karane ko main chala, dil men bahut araman tha.  
+    sair karane ko main chala, dil mein bahut araman tha.  
     ek taraph bahati nadi, ek taraph shamashan tha   1    
   
     pair haddi par padai, haddai ka par ye vyan tha.  
@@ -52,18 +52,18 @@ slug: sair-karane-ko-mai-chala
     samhal-samhal pagu dharate ho, chhoone se adhik derate ho   ४    
   
     agar kahin chhoo jate ho to, turant jay nahate ho  
-    main bhi raha dooniya men ek din, insan re savaliya   5    
+    main bhi raha dooniya mein ek din, insan re savaliya   5    
   
     mal-mal sabun tel badan par, main bhi roj nahate the.  
     is sharir ke khatir main bhi, sundar vastr mangate the   6    
   
-    raj sabha darabar men jakar, man badaae pate the.  
+    raj sabha darabar mein jakar, man badaae pate the.  
     aaj is maradhat par khate, sikar shvan re savaliya   7    
       
     jhhoota hai ye mal khajana, jhhoota hai hira moti  
     apane apane svarath ke khatir, sari dooniya roti   8    
   
-    mar jane ke bad men bas, tin kam yah hoti  
+    mar jane ke bad mein bas, tin kam yah hoti  
     gadaon pheko aur jalao, ho gae kaya khoti   9    
   
     kahai kabir kaya ka, vyavahar re savaliya  10   

@@ -20,11 +20,11 @@ slug: jagava-men-guru-ke-saman-nahin-data
 ## Transliteration
 
   
-    jagava men guru ke saman nahin data ॥  
+    jagava mein guru ke saman nahin data ॥  
 bastu agochar di mere sataguru, bhale lakhayo bata.  
 kam krodh ko kaid karavain, logava navavalain matha ॥  
 kal kare so aajahi kar le, phir na mile ye satha ॥  
-chaurasi men jay paroge, bhogahuge din rata ॥  
+chaurasi mein jay paroge, bhogahuge din rata ॥  
 shabd pukari-pukari kahatu hain, karile santan satha.  
 sumiran bandagi kar saheb ki, kal navavai matha ॥  
 parada kholi milo sataguru se, utaro bhav jal satha.  

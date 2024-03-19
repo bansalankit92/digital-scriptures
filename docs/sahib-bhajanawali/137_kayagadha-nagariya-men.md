@@ -33,7 +33,7 @@ baghava ke maniyan men, baital banavilarava-suna ye.
 sinhava ke dhaele ba siyar-suna ye .... .3 ॥.  
 uantava ke muhava men, jira na samala-suna ye.  
 chiuti samundar sokhale jay-suna ye ... ४    
-saheb kabir gavanan, poorvi men jhhoomararava-suna ye ....  
+saheb kabir gavanan, poorvi mein jhhoomararava-suna ye ....  
 sant jan karailain vichar-suna ye .॥5    
 
   

@@ -21,9 +21,9 @@ slug: sataguru-ke-sang-kyon-na-gae-re
     sataguru ke sang kyon na gae re      
     sataguru sang jati sona bani jati, ab mati ke mol bhae re 1   
     sataguru hai mere pran adhara, tinaki sharan main kyon na gahi re 2   
-    sataguru svami main dasi sataguru ki, sataguru na bhoole men bhooli gae re  3   
+    sataguru svami main dasi sataguru ki, sataguru na bhoole mein bhooli gae re  3   
     sar ko chhodai asar se lipati, dhrrig-dhrrig matimand bhae re. ४    
-    pran pati ko chhodai sakhi re, maya ke jal men arujhhi rahi re. 5    
+    pran pati ko chhodai sakhi re, maya ke jal mein arujhhi rahi re. 5    
     jo prabhu hain mere pran adhara, tinaki sharan main kyon na gahi re  6   
 
   

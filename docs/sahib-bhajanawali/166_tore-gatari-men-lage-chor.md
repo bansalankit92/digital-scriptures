@@ -16,7 +16,7 @@ slug: tore-gatari-men-lage-chor
 ## Transliteration
 
   
-    tore gatari men lage chor, batohiya ka sove ॥  
+    tore gatari mein lage chor, batohiya ka sove ॥  
     panach pachis tin hain chorava, yah sab kinha shor ॥  
     jagu sabera bat anher, phir nahin lage jor ॥  
     bhav sagar ek nadi bait hai, bin utare ja bor ॥  

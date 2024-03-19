@@ -29,7 +29,7 @@ slug: ho-sahib-mere-kab-honge-darshan-tere
     darshan ke pyase nain hain mere  
   
     main mati ka ek diya hoon, too hai usaki jyoti.  
-    bin jyoti ke man mandir men nahin raushani hoti  
+    bin jyoti ke man mandir mein nahin raushani hoti  
     sun le meri karun kahani, dukh har le too mere. ho sahib......  
   
     ghir aae badal kale-2, dhunadale pada gae yah ujiyare.  

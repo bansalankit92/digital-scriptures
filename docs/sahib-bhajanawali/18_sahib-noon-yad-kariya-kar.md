@@ -46,7 +46,7 @@ slug: sahib-noon-yad-kariya-kar
     jadon man dole............  
   
     krripya dekh ke sahib ji di, man mera harashae.  
-    rama huaa hai is duniyan men, najar sabhi men aae.  
+    rama huaa hai is duniyan men, najar sabhi mein aae.  
     jadon tak jiven bandiya paroparak kariya kar  
     jadon man dole............  
   

@@ -34,7 +34,7 @@ phoolava phoolela kachanar-vari nanadiya re ...
 ekahi phoolava ek din, pavalin bada bhagana.  
 garale gagariya ras hoy-vari nanadiya re ...   1    
   
-vahin rasava men ham, chunari rangavali  
+vahin rasava mein ham, chunari rangavali  
 chunari bhail va chatakar-vari nanadiya re ...   2 ॥.  
   
 chunari pahiri ham, chalali sasurava.  

@@ -26,12 +26,12 @@ slug: dekh-lo-aavaj-deke
 
   
     dekh lo aavaj deke pas sahib ko paoge.  
-    mushkilon ke ghere men bhi masti ajab si paoge...........  
+    mushkilon ke ghere mein bhi masti ajab si paoge...........  
   
     sharan pali hai sahib ki, samajhho manjil mil gae-2  
     sachche sathi hain tumhare dil se agar apanaoge. dekh lo.............  
   
-    sataguru sahib hai nirale pheron men dale nahin-2  
+    sataguru sahib hai nirale pheron mein dale nahin-2  
     vaham bharam andar se dekho, mitate hue tum paoge. dekh lo.........  
   
     paras surati se sahib ne di ruhani urja-2  

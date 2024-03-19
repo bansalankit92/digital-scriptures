@@ -40,7 +40,7 @@ slug: na-sadhuoan-ka-bhesh
   
     jo sharan sahib ki aae, usaka man darpan ho jaean.  
     sahib nam ka jahaja banake, hamen amaralok le jae ॥  
-    charanon men karoon bandagi-2 sahib ki barambar ॥  
+    charanon mein karoon bandagi-2 sahib ki barambar ॥  
     na sadhuoan ka bhesh............  
   
     na yantr-mantr batae, na anahad ulajhhae.  

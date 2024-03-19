@@ -26,7 +26,7 @@ slug: sahib-ka-sahara
 ## Transliteration
 
   
-sahib ka sahara hai, jivan men ujiyara hai.  
+sahib ka sahara hai, jivan mein ujiyara hai.  
 itani badai duniyan men, tum bina kaun hamara hai ॥  
   
 gahari hai duniya veg apara, naiya phananasi meri bich majhhadhara.  
@@ -35,7 +35,7 @@ par laga do, door kinara hai. sahib ka sahara hai......
 tum bin ab hai kaun rakhavala, tumhin ho dipak tumhin ho ujala.  
 tumase badhaakar, nahin koe pyara hai. sahib ka sahara hai.........  
   
-tum bin na koe dil men samae, har pal yad dil ko satae.  
+tum bin na koe dil mein samae, har pal yad dil ko satae.  
 premi hoon prem se, tumako pukara hai. sahib ka sahara hai..........  
   
 lakh chaurasi se hamako chhudaao, aavagaman se mukt karao  

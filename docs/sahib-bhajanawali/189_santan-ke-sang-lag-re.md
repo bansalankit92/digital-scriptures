@@ -20,6 +20,6 @@ slug: santan-ke-sang-lag-re
     hansan ki gati hansahi jane, ka jane koe kag re   1    
     santan ke sang pooran kamae, hoy badaon tero bhag re   2    
     dhruv ki bani prahalad ki bani gae, hari sumiran vairag re   3    
-    kahahin kabir suno bhae sadho! ram bhajan men lag re   ४    
+    kahahin kabir suno bhae sadho! ram bhajan mein lag re   ४    
 
   

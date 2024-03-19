@@ -35,7 +35,7 @@ ye javani hai do din ka sapana, dhoodha le too mahaboob apana.
 ye javani agar dhal gayi to, hath mal-mal ke rona padaega 3    
   
 dhaer mitti ke sab aadami hain, bad marane par hota ye hi hai.  
-ya to turabat banegi jami pai, ya chitaoan men jalana padaega ४    
+ya to turabat banegi jami pai, ya chitaoan mein jalana padaega ४    
   
 ye takaboor jose javani, chand lamahon ki hai ye kahani  
 ya miyan sham tak dekh lena, chadhaate sooraj ko dhalana padaega   5    

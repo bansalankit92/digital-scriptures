@@ -25,19 +25,19 @@ slug: har-svans-men-ho-sumiran-tera
 ## Transliteration
 
   
-    har svans men ho sumiran tera, yoonhi bit jae jivan mera.  
+    har svans mein ho sumiran tera, yoonhi bit jae jivan mera.  
     teri seva karate bite sara jivan mera. har svans main........  
   
     jo bhi tera pyara ho vo mere dil ka pyara ho  
     tere sar ka taj meri anakhiyon ka tara ho-2  
-    dale rahoon tere charanon men ghera yoon bit jaai. har svans men......  
+    dale rahoon tere charanon mein ghera yoon bit jaai. har svans men......  
   
     sahib ji main tere dar pe, katoon jindagani-2  
     sachche me sahib ji yah kar do meharabani  
     ho aasama par tera basera yoon bit jae. har svans men......  
   
     nainon ki khidaaki se har pal tujhhako main niharoo  
-    man men basaun teri aarati utaroon   
-    dale rahoon tere charanon men dera. yoon bit jae jivan mera........  
+    man mein basaun teri aarati utaroon   
+    dale rahoon tere charanon mein dera. yoon bit jae jivan mera........  
 
   

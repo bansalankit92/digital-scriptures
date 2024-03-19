@@ -30,7 +30,7 @@ slug: hamen-aur-jine-ki-chahat-na-hoti
   
     mujhhe sab patta hai ki tum mere kya ho.  
     tumhin sataguroo mere, tumhi aatma ho ॥  
-    tere charanon men sara jivan gujaroon.  
+    tere charanon mein sara jivan gujaroon.  
     tere nam se apani aatma savaroon ॥  
     tere pyar ke sapane sanjoe na hote. sahib ji n........  
   
@@ -38,6 +38,6 @@ slug: hamen-aur-jine-ki-chahat-na-hoti
     hona milan kab sahib ji hamara॥  
     too hi mera manjil hai too hi mera sapana.  
     tere siva nahin hai koe bhi apana ॥  
-    tere nam men yoon khoe na hote. sahib ji n...........  
+    tere nam mein yoon khoe na hote. sahib ji n...........  
 
   

@@ -24,18 +24,18 @@ slug: gyan-ke-sagarava-men-naha-le-re-sumatiya
 ## Transliteration
 
   
-    gyaan ke sagarava men naha le re sumatiya,  
+    gyaan ke sagarava mein naha le re sumatiya,  
     dekhi kumatiya ke phate chhati      
   
-    sabakar piyava paradesh men basalain, likhi-likhi bhej rahe pati  
-    hamara piya hamare ghatahi men basalain, na kahi aati na jati   1    
+    sabakar piyava paradesh mein basalain, likhi-likhi bhej rahe pati  
+    hamara piya hamare ghatahi mein basalain, na kahi aati na jati   1    
   
     sabakar piya mad pi ke matalain, ham binu mad ke rahila mati.  
     prem pritiya ke bhatiya jaravalon, mast rahila din rati.   2 ॥  
   
     anahad nad ke diyana banavalon, manasa purn ki bati.  
     surati niratiya ke telava bharalo, bari raheli din rati.   3 ॥  
-    dharmadas araji kari binaven, guru ke charaniya men sir rakhi  
+    dharmadas araji kari binaven, guru ke charaniya mein sir rakhi  
     saheb kabir aiso daya kinha, janam jugan bhaili ahivati.   ४    
 
   

@@ -25,10 +25,10 @@ slug: khushiyon-ki-aaj-baharen-aaeanaae
   
     khushiyon ki aaj baharen aaean-aaean, sahib ke aane se |  
     khushiyan aaean baharen chhae, har dil ki kali muskae  
-    kan-kan men raunak kaisi chhae-chhae, sahib ke aane se.  
+    kan-kan mein raunak kaisi chhae-chhae, sahib ke aane se.  
     khushiyon ki...........  
   
-    pa ke darshan, jhhoome tan man, prem men mast hain aaj sabhi premi jan  
+    pa ke darshan, jhhoome tan man, prem mein mast hain aaj sabhi premi jan  
     chhae hai masti anokhi chhae-chhae, sahib ke aane se.  
     khushiyon ki...........  
   

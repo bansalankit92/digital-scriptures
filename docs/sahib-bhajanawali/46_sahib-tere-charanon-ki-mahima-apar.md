@@ -35,7 +35,7 @@ slug: sahib-tere-charanon-ki-mahima-apar
     tere bina ab ye jivan adhoora, tere siva ab koe na mera.  
     too hi to hai mera jivan adhara. tere in charanon.........  
   
-    kaun jane ye sanse kab rook jaean, har sans men dil tumako bulaean,  
+    kaun jane ye sanse kab rook jaean, har sans mein dil tumako bulaean,  
     in sanson par mera nahin adhikar tere in charanon..........  
 
   

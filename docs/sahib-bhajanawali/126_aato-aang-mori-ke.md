@@ -37,7 +37,7 @@ slug: aato-aang-mori-ke
    jetana kamailoo otana, kara na jatanava-ye sohagin suna.  
    uhavan naikhai, paicha udhar-ye sohagin suna. 3    
   
-   sahib kabir gavan, poorvi men jhhoomarava-ye sohagin suna.  
+   sahib kabir gavan, poorvi mein jhhoomarava-ye sohagin suna.  
    phir na manush avatar-ye sohagin suna ४    
 
   

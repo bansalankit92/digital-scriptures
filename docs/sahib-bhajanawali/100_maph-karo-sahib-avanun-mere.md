@@ -28,11 +28,11 @@ slug: maph-karo-sahib-avanun-mere
     maph karo sahib avagun mere, darshan main chahoon tere  
     chhoda ke duniya tere charanon men, laga lie sahib dere.  
   
-    moh maya ke jal men phansakar, mujhhako nahin ab rahana hai.  
+    moh maya ke jal mein phansakar, mujhhako nahin ab rahana hai.  
     bahut saha hai kasht magar ab aur nahin bas sahana hai.  
     maph karon..........  
   
-    aapake charanon men ea sahib ji, thodai jagah jo mil jae.  
+    aapake charanon mein ea sahib ji, thodai jagah jo mil jae.  
     murajhha chuki hai is jivan ki, phir se kali vah khil jae.  
     maph karo..........  
   

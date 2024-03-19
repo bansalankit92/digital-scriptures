@@ -17,8 +17,8 @@ slug: saheb-soven-atariya-main-ka-karoon
 
   
     saheb sovain atariya, main ka karoona     
-    nau daravaja khule padae hai, dashave men lagi kevariya  main ...  1   
-    naihar men aae vishay men bhooliyo parigai dag chunariya  main ... .2   
+    nau daravaja khule padae hai, dashave mein lagi kevariya  main ...  1   
+    naihar mein aae vishay mein bhooliyo parigai dag chunariya  main ... .2   
     main anajani rah nahi janoo, chhae ghor anadheriya  main ... .3    
     dharm das araji kari binavai, chadhai gae gagan atariya  main ...  5    
 

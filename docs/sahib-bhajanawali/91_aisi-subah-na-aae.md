@@ -28,12 +28,12 @@ slug: aisi-subah-na-aae
     aisi subah na aae, aae na aisi shama.  
     jis din juban par mere, ho na sahib ka nam ॥  
   
-    man mandir men bas hai tera, teri sabhi basae.  
-    pyasi aatma banake jogan, teri sharan men aae  
-    tere hi charanon men paya, mainne hi vishrama. jis din..........  
+    man mandir mein bas hai tera, teri sabhi basae.  
+    pyasi aatma banake jogan, teri sharan mein aae  
+    tere hi charanon mein paya, mainne hi vishrama. jis din..........  
   
-    teri khoj men na jane kitane hi, yug mere bite   
-    ant men kam krodh mad hare, he sahib tum jite.  
+    teri khoj mein na jane kitane hi, yug mere bite   
+    ant mein kam krodh mad hare, he sahib tum jite.  
     mukt kiya tumane sahib, tumako shat-shat pranam jis din........  
   
     sarvakta samarth tumhi ho, he mere parameshvar  

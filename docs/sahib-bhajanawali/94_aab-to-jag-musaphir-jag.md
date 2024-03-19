@@ -40,12 +40,12 @@ phir soya mata ki god men, phir bhi raha na hosha.
 aap gile tujhhe sukhe suhave, mata teri ne socha.  
 maya ne moh liya re॥ ab to jag...........  
   
-phir soya tirya ki sej pe, gal men baiyan dal |  
+phir soya tirya ki sej pe, gal mein baiyan dal |  
 yahi vak‍t tha jagan ka too, jaga nahin ganvara.  
 saja liya doliya re ॥ ab to jag..........  
   
 chita ka sona baki raha ab, sabhi jagah liya soya.  
-kahe sahib ji sone men tan, sari umar gae hoya.  
+kahe sahib ji sone mein tan, sari umar gae hoya.  
 yah kanta bo liya re॥ ab to jag............  
 
   

@@ -38,7 +38,7 @@ slug: sabase-sundar-sabase-nyara-hai
     janm-janm ke soe, ab jage bhagy hamare.  
     kahan hai milata bina daya ke, guroo charanon ka pyar pyar ki tar.......  
   
-    charanon men sahib tere, bahati amrrit ki dhara.  
+    charanon mein sahib tere, bahati amrrit ki dhara.  
     isamen hain sab tirath, hai tirath rajy hamara.  
     yahan jhhuka kar sar ko hamane, paya bhakti bhandar pyar ki tar.......  
   
@@ -48,6 +48,6 @@ slug: sabase-sundar-sabase-nyara-hai
   
     din dayal tumhi ho, rahamat teri kya kahana.  
     toone sikhaya jina, sach ki rahon pe chalana.  
-    bina tumhare sapanon men bhi, jina hai bekar pyar ki tar.......  
+    bina tumhare sapanon mein bhi, jina hai bekar pyar ki tar.......  
 
   

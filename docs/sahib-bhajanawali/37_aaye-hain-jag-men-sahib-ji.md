@@ -24,7 +24,7 @@ slug: aaye-hain-jag-men-sahib-ji
 ## Transliteration
 
   
-    aaye hain jag men sahib ji, doobe jiv tarane, bhavasagar par lagane  
+    aaye hain jag mein sahib ji, doobe jiv tarane, bhavasagar par lagane  
     janmon se bichhadai roohon ko, sahib ke sang milate hain-2  
     kasht apane tan pe uta karake, jivon ke kasht mitate hain.  
     varsha karate hai bhakti ki, hamen shital shant banane bhavasagar...................  

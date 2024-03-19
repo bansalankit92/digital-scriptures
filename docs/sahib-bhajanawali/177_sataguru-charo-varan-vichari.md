@@ -28,10 +28,10 @@ slug: sataguru-charo-varan-vichari
   
     sataguru charo varan vichari     
     brahman soe jo brahm ko janen, pahir janeu bichari.  
-    sadhu men sau gun janeu men nau gun, so pahire brahmachari   1    
+    sadhu mein sau gun janeu mein nau gun, so pahire brahmachari   1    
   
     kshatri soe jo pap ko kshay karen, bandhi jnjan talavari  
-    andar dil men daya rakhe, kabahu na aave hari  2   
+    andar dil mein daya rakhe, kabahu na aave hari  2   
   
     vaishy vahin jo vishay ko tyage, chhadai dae par nari.  
     mamata mari ke manjan lave, pran dan dee dari   3    

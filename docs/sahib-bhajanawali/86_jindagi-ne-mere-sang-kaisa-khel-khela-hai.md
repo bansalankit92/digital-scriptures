@@ -39,17 +39,17 @@ slug: jindagi-ne-mere-sang-kaisa-khel-khela-hai
     aata bhi akela hai jata bhi akela hai.  
     jindagi ne mere sang kaisa khel khela hai.  
   
-    jindagi ke mele men gam bhi hai khushi bhi hai.  
+    jindagi ke mele mein gam bhi hai khushi bhi hai.  
     had se sukhi hain koe to had se du:khi bhi hai-2  
     poochhata hai har koe kaisa yah jhhamela hai. jindagi ne tere............  
   
     jodae hai khajane phir bhi bujhhati nahin pyas hai  
     khushiyon ke saudagar aatma udas hai-2  
-    ja raha is duniya se pas men na dhela hai. jindagi ne tere..........  
+    ja raha is duniya se pas mein na dhela hai. jindagi ne tere..........  
   
     kal ka nagara baje chhoda jhhuti shan ko  
     kuchh pal bacha hai pagale jap sahib nam ko-2  
-    in viran rahon men har koe akela hai. jindagi ne tere............  
+    in viran rahon mein har koe akela hai. jindagi ne tere............  
   
     apane gunahon ki gatadai too bhi khol de,  
     aatma jo chahati hai. vahi sach bol de-2  

@@ -26,12 +26,12 @@ slug: sataguru-shabd-gahain-koe-shoora
     tan man tyagon pit na lage, karo naukari poora.  
     laj sharam tera saheb rakhen, himpat dhari ho jarura  6॥.  
     aasha trisna kanak kamini, moh jahar ke kura.  
-    shoora hoy to ran men joojhhain, bhagalain kayar koora 2   
+    shoora hoy to ran mein joojhhain, bhagalain kayar koora 2   
   
     saheb ke paravana aailain, chalaba nayan hajoora.  
     brahm vishnu aur niranjan, ta ghar lagen majoora   3    
   
     kahahin kabir bahu sant panth hai, koe jhhoota koe poora  
-    sab piran men pir auliya, khoji lehu khasam kabira. ४0.  
+    sab piran mein pir auliya, khoji lehu khasam kabira. ४0.  
 
   

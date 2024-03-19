@@ -22,7 +22,7 @@ slug: ek-din-jana-hoga-jaaroor
   
    ek din jana hoga jaaroor      
 lakshiman ram amar jo hote, rahate hal hajoora.  
-ve bhi jag men rahan na paye, samajhh chet nar koor  3॥.  
+ve bhi jag mein rahan na paye, samajhh chet nar koor  3॥.  
  kumbh karan ravan bada yodha, kahat rahe ham soora.  
 katin kal ne unahoon khaya, hoge chakanachoora 2॥.  
 arjun as kshatri nahin jag men, karn dan bharapoora.  

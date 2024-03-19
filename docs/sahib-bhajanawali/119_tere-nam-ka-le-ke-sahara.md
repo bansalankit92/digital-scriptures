@@ -24,11 +24,11 @@ slug: tere-nam-ka-le-ke-sahara
 
   
     tere nam ka le ke sahara, aae hain teri mahaphil men.  
-    ab jo bhi hain teri marajai, basana hai to bas yoon dil men ॥  
+    ab jo bhi hain teri marajai, basana hai to bas yoon dil mein ॥  
   
     chhoda aae hain jhhooti khushiyan, chhoda aae khajaane sare.  
     chhoda aae hain nakali nate, chhoda aae tikane sare ॥  
-    aasan bana do jina-2, jina hai bahut mushkil men  
+    aasan bana do jina-2, jina hai bahut mushkil mein  
     tere nam ka le ke sahara....................  
   
     ham ne ik kadam badhaaya, vapis to nahin jaenage.  

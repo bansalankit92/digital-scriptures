@@ -34,13 +34,13 @@ mere bekarar dil ko aaram aa gaya hai.
 teri rahamaton ka kaise, karoon shukriya ada main  
 aane ka tere sahib, paigam aa gaya hai.a. hoton pe mere.......  
   
-mere dil men teri khushabu, kitana hasin najaara.  
+mere dil mein teri khushabu, kitana hasin najaara.  
 mere dil ke is chaman men, meharaban aa gaya hai॥. hoton pe mere...............  
   
 tere raham pe hai sahiba, mera lailaj dil ye.  
 sare jahan ki daulat, nachija pa gaya hai.a. hoton pe mere.......  
   
-mujhhasa khushanasib, sari duniya men hai na koe  
+mujhhasa khushanasib, sari duniya mein hai na koe  
 sahib ke premiyon men, mera nam aa gaya hai.a. hoton pe mere...............  
   
 mashhoor ho jahan men, tera nooronam sahib  

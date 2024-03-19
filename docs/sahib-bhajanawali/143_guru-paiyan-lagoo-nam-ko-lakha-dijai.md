@@ -21,7 +21,7 @@ slug: guru-paiyan-lagoo-nam-ko-lakha-dijai
     janam-janam ke sootal manuva, shabd ke mari se jaga dijai 1    
     ghat adhiyari bastu nahin soojhhai, jnjan ke dipak jala dijai 2   
     vish ke lahar ute ghar bhitar, amrrit brrind chuva dijai 3   
-    tooti nav samudr men dera, kheike par laga dijai ४    
-    dharmadas araji kari binaven, shabd men soorati mila dijai. ॥5   
+    tooti nav samudr mein dera, kheike par laga dijai ४    
+    dharmadas araji kari binaven, shabd mein soorati mila dijai. ॥5   
 
   

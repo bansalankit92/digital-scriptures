@@ -33,7 +33,7 @@ kiy chunari tuhare naihare se ailain rama,
 kiy re sohagin sasurari-rasana ram se bhajon .2   
 nahin chunari hamare naihare se ailain rama,  
 nahin re sohagini sasurari-rasana ram se bhajo 3    
-amar hi lokava men sabakar biyahuta,  
+amar hi lokava mein sabakar biyahuta,  
 uhain re bhejaven tan sari-rasana ram se bhajon 5    
 amava ke dari chadhai bole koilariya ho,  
 more boote rahalo na jay-rasana ram se bhajo 7;    

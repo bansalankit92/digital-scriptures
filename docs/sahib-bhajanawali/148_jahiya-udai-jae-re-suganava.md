@@ -30,7 +30,7 @@ slug: jahiya-udai-jae-re-suganava
     jahiya le sugana ba bhitar, ye pijadaa ke mol ba.  
     kehu na jani jahiya, udai gaganava  sun ...   
       
-    ea pijadaa mati ke banal, mati men milajae  
+    ea pijadaa mati ke banal, mati mein milajae  
     sugana ke udaatai pijadaa ke, pas na kehoo aae.  
     jhhar-jhhar barase lagi nayanava. | sun ......  
   

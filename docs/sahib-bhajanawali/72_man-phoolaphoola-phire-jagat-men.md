@@ -30,7 +30,7 @@ slug: man-phoolaphoola-phire-jagat-men
 ## Transliteration
 
   
-    man phoola-phoola phire jagat men kaisa nata re.  
+    man phoola-phoola phire jagat mein kaisa nata re.  
   
     mata kahe ye putr hamara, bahan kahe vir mera.  
     bhae kahe ye bhuja hamari, nar kahe nar mera ॥  

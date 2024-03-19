@@ -62,7 +62,7 @@ slug: sahib-nam-ke-hire-moti
     le lo re koe sahib ka pyara.............  
   
     jis-jis ko apana kar bande, too itana itarata hai  
-    chhodaenge sab bich bhanavar men tujhhako koe sang na jata hai  
+    chhodaenge sab bich bhanavar mein tujhhako koe sang na jata hai  
     jagat musaphir char dinon ka, aakhir hogi chala-chali.  
     le lo re koe sahib ka pyara..............  
 

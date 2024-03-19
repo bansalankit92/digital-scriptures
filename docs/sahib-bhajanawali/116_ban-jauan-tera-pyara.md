@@ -33,7 +33,7 @@ slug: ban-jauan-tera-pyara
     jivan bitaun sara bas tujhhako chahate-chahate ॥  
   
     rah-rah ke mere dil men, utati hain ye tarangen,  
-    hai mere dil men keval tere milane ki umangen.  
+    hai mere dil mein keval tere milane ki umangen.  
     mujhhako mila jo pritam, tujhhe yad karate-karate ban jauan............  
   
     dekho main nasamajhh hoon, pakadaa tumhara daman |  
@@ -45,7 +45,7 @@ slug: ban-jauan-tera-pyara
     sare jag ko main bhula doon, tujhhe yad karate-karate ban jauan............  
   
     tere dar ke niyamon par ham, data ji chalate jaean  
-    shri aajnja men hi rahakar jivan ko ham bitaean.  
+    shri aajnja mein hi rahakar jivan ko ham bitaean.  
     jindagi ko dhal sahib ji ham, kirapa ko teri paean. ban jauan........  
 
   

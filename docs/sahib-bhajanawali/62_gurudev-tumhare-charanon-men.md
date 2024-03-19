@@ -25,13 +25,13 @@ slug: gurudev-tumhare-charanon-men
 
   
     gurudev tumhare charanon men, main shish jhhukane aaya hoona.  
-    vani men tanik mitas nahin, par vinay sunane aaya hoon ॥  
+    vani mein tanik mitas nahin, par vinay sunane aaya hoon ॥  
       
     guru ka charanamrrit lene ko, hai mere koe patr nahin  
     nainon ke donon pallon men, main amrrit lene aaya hoon ॥  
 vani men............  
   
-tumase lekar kya bhent karoon, guroodev tumhare charanon men  
+tumase lekar kya bhent karoon, guroodev tumhare charanon mein  
 main bhikshuk hoon tum data ho, sanbandh jatane  aaya hoon ॥  
 vani men...........  
   pooja ki koe vastu nahin, phir bhi dekho sahas mera.  

@@ -37,10 +37,10 @@ slug: tera-nam-sukh-ki-khan
     jisane paya tera nama. vo na khae kal ki mar ॥  
     ye nam amrrit pana. diyo re mujhhako krripa nidhan ॥  
   
-    janm maran ke chakr mintave. garbh men aane se hamako bachave ॥  
+    janm maran ke chakr mintave. garbh mein aane se hamako bachave ॥  
     ye nam saty jnjana. diyo re mujhhako krripa nidan ॥  
   
-    tinon lok men mil na pave. rrishi muni bhi bhed na pave ॥  
+    tinon lok mein mil na pave. rrishi muni bhi bhed na pave ॥  
     ye nam amar ka dhama. diyo re mujhhako krripa nidhan ॥  
   
     sahib mera amar ka vasi. vo hai data main hoon dasi ॥.  

@@ -23,7 +23,7 @@ slug: sahib-matapita-sahib-bandhu-sakha
 
 ## Transliteration
     
-    sahib mata-pita sahib bandhu sakha, shri charanon men data jinake koti pranam  
+    sahib mata-pita sahib bandhu sakha, shri charanon mein data jinake koti pranam  
     priyatam sahib prananath sahib --shri charanon..............  
   
     sahib prerana, sahib sadhana, sahib aradhana mere sataguru pyare.  
@@ -35,6 +35,6 @@ slug: sahib-matapita-sahib-bandhu-sakha
     sahib bhakti hai sahib shakti hai, sahib mukti hai mere sataguru pyare  
     sahib mat-pita..............  
   
-    prananath tumhin hrridayanath tumhin --shri charanon men data jinake koti pranam  
+    prananath tumhin hrridayanath tumhin --shri charanon mein data jinake koti pranam  
 
   

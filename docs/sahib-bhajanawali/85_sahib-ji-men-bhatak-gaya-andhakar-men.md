@@ -33,7 +33,7 @@ slug: sahib-ji-men-bhatak-gaya-andhakar-men
 ## Transliteration
 
   
-   sahib ji main bhatak gaya andhakar men  
+   sahib ji main bhatak gaya andhakar mein  
    mujhhe rah dikha jana-2  
   
    jo bhi dekha is duniyan men, saty hi samajhha mainne  

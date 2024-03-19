@@ -29,16 +29,16 @@ slug: mitti-ka-khilauna-mitti-men-mili-jayega
 ## Transliteration
 
   
-mitti ka khilauna mitti men mili jayega,  
+mitti ka khilauna mitti mein mili jayega,  
 man mera kahana nahin to pachhitayega     
   
 sundar rup dekhi kar bhoola hai,  
-dhan jvani ke mad men phoola hai.  
+dhan jvani ke mad mein phoola hai.  
 ek din hansa akela udai jayega. man mera .... .1    
   
 pati aur patni pita aru mata,  
 sakha sumitr sahodar bhrata.  
-kshan bhar men nata sabhi se chhooti jayega   man mera ... 2    
+kshan bhar mein nata sabhi se chhooti jayega   man mera ... 2    
   
 hira javahar ki mala tumhari,  
 makhamal ki gadda aur resham ki sadai  

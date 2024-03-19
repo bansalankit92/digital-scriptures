@@ -30,7 +30,7 @@ slug: sahib-dar-pe-to-aana-mera-kam-hai
     meri bigadai banana tera kam hai ॥  
   
     teri chaukhat kahan, kahan teri jamin, tere raham-o-karam ki to had hi nahin.  
-    jise duniyan men koe na apana kahen, use apana banana tera kam hai ॥  
+    jise duniyan mein koe na apana kahen, use apana banana tera kam hai ॥  
   
     yah main mana ki kabil-e-did hoon, rooh say hai aur na pakija hoona.  
     jisase napharat hi sara jamana kare, use gale se lagana tera kam hai ॥  
@@ -38,7 +38,7 @@ slug: sahib-dar-pe-to-aana-mera-kam-hai
     bhikh ek managane ko to aaya hoon main, khvahish-e-did teri jo laya hoon main.  
     uti hai jo umang mere dil men, aakhir usako nibhana tera kam hai ॥  
   
-    ab to dil men bhi koe tamanna nahin,  
+    ab to dil mein bhi koe tamanna nahin,  
     aur jannat ki bhi mujhhako paravah nahin,  
     yah salamat rahe aashiyana tera, jisape sir ko jhhukana mera kam hain ॥  
 

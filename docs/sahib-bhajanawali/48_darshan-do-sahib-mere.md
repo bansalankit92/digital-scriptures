@@ -23,7 +23,7 @@ slug: darshan-do-sahib-mere
     darshan do sahib mere, krripa karo data mere  
     sahib ji beti hoon teri, thodai si krripa karana. darshan do.....  
     kismat vale ham sab hain, sahib ji ko pa gae.  
-    unaki krripa se ham unake charanon men chale aa gae.  
+    unaki krripa se ham unake charanon mein chale aa gae.  
     niranjan se bachalo mujhhako, maya se chhudaalo mujhhako  
     sahib ji beti hoon teri, thodai si krripa karana. darshan do..........  
     duniya ne tukaraya hai, sahib ne apanaya hai.  

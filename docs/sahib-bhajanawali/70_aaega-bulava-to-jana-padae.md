@@ -37,7 +37,7 @@ slug: aaega-bulava-to-jana-padae
     bura hai bura hi rahega bahana kisi ka ॥ nahin chahie..........  
   
     duniya ka gulashan sada hi rahega,  
-    mela ye jahan men laga hi rahega.  
+    mela ye jahan mein laga hi rahega.  
     aana kisi ka aur jana kisi ka. nahin chahie........  
 
   

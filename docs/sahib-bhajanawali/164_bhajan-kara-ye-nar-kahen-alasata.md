@@ -18,7 +18,7 @@ slug: bhajan-kara-ye-nar-kahen-alasata
   
 bhajan kara ye nar kahen alasata     
 nakhasikh se prabhu srriooj lagata, tehi na bhajasi moodha kahen ko lajata  1   
-bhaju manuva sataguru ji ke bata, janm padarath dhokhavai men jata  2 ॥.  
+bhaju manuva sataguru ji ke bata, janm padarath dhokhavai mein jata  2 ॥.  
 bhajan kare se yamaraj daratu hai, chhootale bhajaniyan kahan batain  kushalata  3    
 bhajan hai mata bhajan hai pita, saheb kabir bhajaniyan le nata ४    
 

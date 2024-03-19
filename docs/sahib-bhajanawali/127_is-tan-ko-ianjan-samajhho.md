@@ -27,7 +27,7 @@ slug: is-tan-ko-ianjan-samajhho
   
    is tan ko ianjan samajhho, har bar bare balamu     
    isake chalane ke liye bhae, neki vadi dou lain bane.  
-   kam krodh mad lobh moh, panacho phatak men bane   
+   kam krodh mad lobh moh, panacho phatak mein bane   
    aavaj siti ko tum samajhho, lalaten dou nain bane.  
    man ban gaya draivar, gadaivan bare balamu 1    
    atr pani tum khate ho, koyala goyala milata hai. ha  
@@ -37,7 +37,7 @@ slug: is-tan-ko-ianjan-samajhho
    kabhi chale ve dhire, kabhi lalakar bare balamu .2   
    ek dam se vigada gaya, tab hare log banane main  
    chari janen mili kanthe dhailain, le gaye radadi khane men,  
-   kal poorja sab gada diya, kuchh der laga jalane men  
+   kal poorja sab gada diya, kuchh der laga jalane mein  
    kahain kabir kaya ka, vistar bare balamoo 3    
 
   
