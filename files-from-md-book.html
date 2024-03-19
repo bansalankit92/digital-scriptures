@@ -91,13 +91,15 @@
             "ो": "o",
             "ॊ": "o",
             "ौ": "au",
-            क्ष: "ksh",
-            त्र: "tr",
-            ज्ञ: "jn",
-            ऑ: "O",
+            "क्ष": "ksh",
+            "त्र": "tr",
+            "ज्ञ": "jn",
+            "ऑ": "O",
             "ॉ": "O",
             "।": ".",
             "़": "",
+            "ँ":"n",
+            "ः":"",
         };
 
         const numerals = {
@@ -707,9 +709,8 @@
 
             const slug = hi2en(title)
                 .replace(/[^a-zA-Z ]/g, "")
-                .replaceAll("aa", "a")
+                // .replaceAll("aa", "a")
                 .replaceAll("th", "t")
-                .replaceAll("aa", "a")
                 .replaceAll(" ", "-")
                 .toLowerCase();
             console.log(slug);
@@ -755,6 +756,13 @@
 
     arr.forEach((x) => {
         const fileName = `${x.count}_${x.slug}.md`;
+
+        const enBody = hi2en(x.body)
+                // .replaceAll("aa", "a")
+                .replaceAll("th", "t")
+                .replaceAll(" .a ", " ")
+                .toLowerCase();
+
         const text = `---
   title: "${x.title}"
   keywords: ["${
@@ -765,10 +773,13 @@
   ---
 
   ${x.body}
+
+## Transliteration
+  ${enBody}
   `;
         console.log(text);
         // Start file download.
-        download(fileName, text);
+        // download(fileName, text);
     });
 
 
