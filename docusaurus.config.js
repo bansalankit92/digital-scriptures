@@ -9,9 +9,8 @@ import {themes as prismThemes} from 'prism-react-renderer';
 /** @type {import('@docusaurus/types').Config} */
 const config = {
     title: 'Satya Bhakti',
-    tagline: 'Raising Spiritual Awareness',
+    tagline: 'Unveiling the Path to Eternal Devotion',
     favicon: 'img/favicon.ico',
-
     // Set the production url of your site here
     url: 'https://satyabhakti.com',
     // Set the /<baseUrl>/ pathname under which your site is served
@@ -67,8 +66,9 @@ const config = {
     /** @type {import('@docusaurus/preset-classic').ThemeConfig} */
         ({
             metadata: [
-                {name: 'keywords', content: 'sant kabir books, sahibji books, sant vani, aarti, kabir mansoor, kabir sagar'},
+                {name: 'keywords', content: 'sant kabir books, sahibji books, sant vani, aarti, kabir mansoor, kabir sagar, Bhakti Movement, Spiritual Books, Bhajan Lyrics, Saints of India, Dohas, Quotes, Spirituality, Q&A, True Devotion, Inner Peace, Bhakti, Eternal wisdom, spiritualism, Sant literature digital format, Satya Bhakti, Satya Bhakti India, Spiritual books online'},
                 {name: 'twitter:card', content: 'img/india-sants.png'},
+                {name: 'description', content: "Explore the timeless wisdom of the Bhakti movement with Satya Bhakti - your digital sanctuary for authentic spiritual texts, dohas, and bhajans. Dive into the teachings of revered sants, engage with insightful Q&As, and experience true devotion through our comprehensive collection of spiritual literature. Begin your journey towards enlightenment today."}
             ],
             // Replace with your project's social card
             image: 'img/india-sants.png',
