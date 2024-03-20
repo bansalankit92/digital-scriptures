@@ -11,6 +11,9 @@ const config = {
     title: 'Satya Bhakti',
     tagline: 'Unveiling the Path to Eternal Devotion',
     favicon: 'img/favicon.ico',
+    customFields: {
+        description: 'Explore the timeless wisdom of the Bhakti movement with Satya Bhakti - your digital sanctuary for authentic spiritual texts, doha, and bhajans. Dive into the teachings of revered sants, engage with insightful Q&As, and experience true devotion through our comprehensive collection of spiritual literature. Begin your journey towards enlightenment today.',
+    },
     // Set the production url of your site here
     url: 'https://satyabhakti.com',
     // Set the /<baseUrl>/ pathname under which your site is served

@@ -33,7 +33,7 @@ export default function Home() {
   return (
     <Layout
       title=''
-      description={`${siteConfig.tagline}`}>
+      description={`${siteConfig.customFields.description}`}>
       <HomepageHeader />
       <main>
         <HomepageFeatures />
