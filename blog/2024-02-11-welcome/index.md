@@ -1,7 +1,7 @@
 ---
 slug: welcome
 title: Welcome
-authors: [ankit]
+authors: [admin]
 tags: [hello]
 ---
 

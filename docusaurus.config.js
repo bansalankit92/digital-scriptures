@@ -33,7 +33,7 @@ const config = {
     // may want to replace "en" with "zh-Hans".
     i18n: {
         defaultLocale: 'hi',
-        locales: ['en','hi'],
+        locales: ['hi'],
     },
 
     presets: [
@@ -64,31 +64,46 @@ const config = {
             })
         ],
     ],
+    plugins: [
+        '@stackql/docusaurus-plugin-structured-data',
+    ],
 
     themeConfig:
     /** @type {import('@docusaurus/preset-classic').ThemeConfig} */
         ({
+            structuredData: {
+                excludedRoutes: [], // array of routes to exclude from structured data generation, include custom redirects here
+                authors: {
+                    admin: {
+                        authorId: "admin", // unique id for the author - used as an identifier in structured data
+                        url: "https://github.com/bansalankit92",
+                        image_url: " https://github.com/bansalankit92.png"
+                    },
+                },
+                featuredImageDimensions: {
+                    width: 1200,
+                    height: 627,
+                },
+                organization: {}, // Organization properties can be added to this object
+                website: {
+                    description: 'Explore the timeless wisdom of the Bhakti movement with Satya Bhakti - your digital sanctuary for authentic spiritual texts, doha, and bhajans. Dive into the teachings of revered sants, engage with insightful Q&As, and experience true devotion through our comprehensive collection of spiritual literature. Begin your journey towards enlightenment today.',
+
+                }, // WebSite properties can be added to this object
+                webpage: {
+                    inLanguage: "hi", // default: en-US
+                },
+                breadcrumbLabelMap: {} // used to map the breadcrumb labels to a custom value
+            },
+
             metadata: [
-                {name: 'keywords', content: 'sant kabir books, sahibji books, sant vani, aarti, kabir mansoor, kabir sagar, Bhakti Movement, Spiritual Books, Bhajan Lyrics, Saints of India, Dohas, Quotes, Spirituality, Q&A, True Devotion, Inner Peace, Bhakti, Eternal wisdom, spiritualism, Sant literature digital format, Satya Bhakti, Satya Bhakti India, Spiritual books online'},
+                {
+                    name: 'keywords',
+                    content: 'sant kabir books, sahibji books, sant vani, aarti, kabir mansoor, kabir sagar, Bhakti Movement, Spiritual Books, Bhajan Lyrics, Saints of India, Dohas, Quotes, Spirituality, Q&A, True Devotion, Inner Peace, Bhakti, Eternal wisdom, spiritualism, Sant literature digital format, Satya Bhakti, Satya Bhakti India, Spiritual books online'
+                },
                 {name: 'twitter:card', content: 'img/india-sants.png'},
-                {name: 'description', content: "Explore the timeless wisdom of the Bhakti movement with Satya Bhakti - your digital sanctuary for authentic spiritual texts, dohas, and bhajans. Dive into the teachings of revered sants, engage with insightful Q&As, and experience true devotion through our comprehensive collection of spiritual literature. Begin your journey towards enlightenment today."}
             ],
             headTags: [
                 // Declare some json-ld structured data
-                {
-                    tagName: 'script',
-                    attributes: {
-                        type: 'application/ld+json',
-                    },
-                    innerHTML: JSON.stringify({
-                        "@context": "https://schema.org/",
-                        "@type": "WebSite",
-                        "name": "Satya Bhakti",
-                        "url": "https://satyabhakti.com/",
-                        "logo": 'https://satyabhakti.com/img/favicon.ico',
-                        "image": "https://satyabhakti.com/img/india-sants.png",
-                    }),
-                },
             ],
             // Replace with your project's social card
             image: 'img/india-sants.png',
