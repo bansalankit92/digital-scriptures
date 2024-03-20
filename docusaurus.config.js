@@ -70,6 +70,23 @@ const config = {
                 {name: 'twitter:card', content: 'img/india-sants.png'},
                 {name: 'description', content: "Explore the timeless wisdom of the Bhakti movement with Satya Bhakti - your digital sanctuary for authentic spiritual texts, dohas, and bhajans. Dive into the teachings of revered sants, engage with insightful Q&As, and experience true devotion through our comprehensive collection of spiritual literature. Begin your journey towards enlightenment today."}
             ],
+            headTags: [
+                // Declare some json-ld structured data
+                {
+                    tagName: 'script',
+                    attributes: {
+                        type: 'application/ld+json',
+                    },
+                    innerHTML: JSON.stringify({
+                        "@context": "https://schema.org/",
+                        "@type": "WebSite",
+                        "name": "Satya Bhakti",
+                        "url": "https://satyabhakti.com/",
+                        "logo": 'https://satyabhakti.com/img/favicon.ico',
+                        "image": "https://satyabhakti.com/img/india-sants.png",
+                    }),
+                },
+            ],
             // Replace with your project's social card
             image: 'img/india-sants.png',
             navbar: {
