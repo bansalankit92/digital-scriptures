@@ -12,7 +12,8 @@ const config = {
     tagline: 'Unveiling the Path to Eternal Devotion',
     favicon: 'img/favicon.ico',
     customFields: {
-        description: 'Explore the timeless wisdom of the Bhakti movement with Satya Bhakti - your digital sanctuary for authentic spiritual texts, doha, and bhajans. Dive into the teachings of revered sants, engage with insightful Q&As, and experience true devotion through our comprehensive collection of spiritual literature. Begin your journey towards enlightenment today.',
+        description: 'Explore the timeless wisdom of the Bhakti movement, This is your digital sanctuary for authentic spiritual texts, doha, and bhajans. ',
+            // 'Dive into the teachings of revered sants, engage with insightful Q&As, and experience true devotion through our comprehensive collection of spiritual literature. Begin your journey towards enlightenment today.',
     },
     // Set the production url of your site here
     url: 'https://satyabhakti.com',
@@ -86,7 +87,7 @@ const config = {
                 },
                 organization: {}, // Organization properties can be added to this object
                 website: {
-                    description: 'Explore the timeless wisdom of the Bhakti movement with Satya Bhakti - your digital sanctuary for authentic spiritual texts, doha, and bhajans. Dive into the teachings of revered sants, engage with insightful Q&As, and experience true devotion through our comprehensive collection of spiritual literature. Begin your journey towards enlightenment today.',
+                    description: 'Explore the timeless wisdom of the Bhakti movement, This is your digital sanctuary for authentic spiritual texts, doha, and bhajans. ',
 
                 }, // WebSite properties can be added to this object
                 webpage: {
@@ -101,7 +102,7 @@ const config = {
                     content: 'sant kabir books, sahibji books, sant vani, aarti, kabir mansoor, kabir sagar, Bhakti Movement, Spiritual Books, Bhajan Lyrics, Saints of India, Dohas, Quotes, Spirituality, Q&A, True Devotion, Inner Peace, Bhakti, Eternal wisdom, spiritualism, Sant literature digital format, Satya Bhakti, Satya Bhakti India, Spiritual books online'
                 },
                 {name: 'twitter:card', content: 'img/india-sants.png'},
-                {name: 'description', content: "Explore the timeless wisdom of the Bhakti movement with Satya Bhakti - your digital sanctuary for authentic spiritual texts, dohas, and bhajans. Dive into the teachings of revered sants, engage with insightful Q&As, and experience true devotion through our comprehensive collection of spiritual literature. Begin your journey towards enlightenment today."}
+                {name: 'description', content: "Explore the timeless wisdom of the Bhakti movement, This is your digital sanctuary for authentic spiritual texts, doha, and bhajans. "}
 
             ],
             headTags: [
@@ -141,6 +142,18 @@ const config = {
                             {
                                 to: '/docs/sahib-bhajanawali',
                                 label: 'Bhajanawali - भजनावली',
+                            },
+                        ]
+                    },
+                    {
+                        label: 'Spiritual Question & Answers',
+                        items: [
+                            {
+                                to: '/docs/spiritual-qna-en',
+                                label: 'English',
+                            }, {
+                                to: '/docs/spiritual-qna-hi',
+                                label: 'Hindi',
                             },
                         ]
                     }

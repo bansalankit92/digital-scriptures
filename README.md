@@ -39,3 +39,13 @@ $ GIT_USER=<Your GitHub username> yarn deploy
 ```
 
 If you are using GitHub pages for hosting, this command is a convenient way to build the website and push to the `gh-pages` branch.
+
+
+### find and replace
+
+1. Regex between characters
+"§([^;]*);"  
+The selected characters between the § and ; are available as match group 1.
+
+2. delete a line via regex vscode
+^.*( Sahib Bandgi).*\n?
