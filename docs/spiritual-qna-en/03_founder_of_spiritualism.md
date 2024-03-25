@@ -127,8 +127,9 @@ Sahib Kabir asks the devotees to take all the three —
 1. One who consumes drugs and sits in meditation.
 2. A family holder who recites Kathas ( religious
    discourses ). and
-3. A sage who indulges in sexual activities —as
-   cheats who misleads.
+3. A sage who indulges in sexual activities 
+
+— as cheats who misleads.
 
 ----
 There are number of Sants in the world today, but none talks of any other authority that lies beyond the Vedas & the Scriptures. Sant Samrat Kabir Sahib has clearly said—
