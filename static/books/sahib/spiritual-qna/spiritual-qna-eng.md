@@ -192,6 +192,7 @@ Sant Kabir Sahib says that his mystery is far beyond the limits of Niranjan. Onl
 
 ## Questions and answers on Spiritualism
 
+## thing you possess is not found anywhere in universe
 ### You say the thing you possess is not to be found anywhere else in the Brahmand. Doesn’t it show your ego?
 Study carefully the words I say. I say the thing I possess is not to be found anywhere else in the Brahmand.
 This is because it belongs to the 4th Loka, also called as Amarlok. These simple words create unnecessary discussion.
@@ -252,7 +253,7 @@ Sahib Kabir says that he remains with the devotee
 who gets blessed with the true and real Naam.
 Take it as true that the world will repent after my departure from the world because there is truth and truth in my statement that ‘The thing I possess is not to be found anywhere else in the Brahmand’.
 
-
+## Can Jiva cross worldly ocean on its own
 ### Can Jiva cross the worldly ocean of life and Death on its own efforts?
 Certainly not, The Beings can’t escape from the grip of Niranjan even after worshiping for crores of years, Niranjan won’t allow the Jiva to even reach him. Even if the beings manage to do so, it will forget its own identity. Under no circumstances, the Jiva can hope to attain permanent salvation. It is only Sant Satgurus who are in possession of the 'Paras Surti'. with its miraculous power they absorb the Jiva within them and take it to Amarlok. If the Satgurus don’t do so, the powerful attraction of Mind and Maya will bring the Jiva back to the earth.
 ```text
@@ -362,7 +363,7 @@ me.
 Next comes the ocean of Surti. It is the ocean of that very concentration that has been working in our body. You must think that every job in the universe is being performed with the power of Surti alone and therein lies its ocean. The soul is made to take a bath there. It is only then that the Mind gets separate completely. It is not like diving in the water. It is the source of indescribable lights. Within a moment, it seems as if the Soul had emerged out of it some millions of spins. And when that soul comes before Param Purush, it gets in it the light of 16 suns. Then it becomes fully awakened.
 After this, whenever the Hansa has to visit there, the same procedure need not to be followed. The middle paths disappear. Just imagine the grace of the Satguru. Just think! Can such a thing happen on the basis of one’s own earnings. Certainly not, will be the answer.
 
-
+## worship of Guru Isnt a kind of worship of man
 ### You are talking about the worship of Guru. Isn’t it a kind of worship of man? Why shouldn’t we worship Param Purush directly?
 Rig Veda says—
 ```text
@@ -441,7 +442,7 @@ Veh Loha Anchan Kare, Guru Karle Aap Saman||
 When you first came in contact with me, I change your personality first. I remove the earlier one and fill it with Madurai-sweetness. Now your thoughts, your nature will begin to match with me.
 
 ----
-
+## devotees should recite meditate and earn merits or not
 ### You oppose the acts of earnings but you yourself say the devotees should recite the Naam and should meditate. Those who talk about earnings merits, also say the same. Then what remains the difference?
 I have never said that the devotees should perform rites, rituals and other kinds of deeds to the extent they can, so that based on these they can cross the worldly ocean.
 I have 2 mobiles. I receive many phone calls. The
@@ -511,6 +512,7 @@ However Sants brought a revolution in the spiritual field. They
 placed Satguru even above God.
 ----
 
+## difference between Guru and Satguru
 ### What is the difference between a Guru and a Satguru?
  Guru can at the most have knowledge of the 3 Lokas (Jagatguru) whereas the Satguru has the knowledge of the 4th Loka as well. A Guru blesses with the Nsam related to Sagun or Nirgun method of worship whereas the Satguru blesses with the Naam related to the true and real form of worship related to Param Purush. A Guru simply shows the path without doing anything for himself and the disciple has to make his own earnings whereas the Satguru not only shows the path but also himself helps the disciple reach Amarlok.
 A Guru has no knowledge of Param Purush whereas a real Satguru not only has knowledge of Him but also actually descends on the earth after getting absorbed in Him. A Guru at the most has a knowledge of the 10 dwaras whereas a Satguru has the knowledge of the 11th (Surati) Dwara as well. The Naam blessed by the Guru is a worldly one and can be spoken, read as well as reduced to writing. It is related to the body. However, the Naam blessed by the Satguru is related to the Soul and is not a worldly thing. That is why it neither can be spoken nor can be read or reduced to writing. A Guru has no power to impart the true knowledge related to the Soul whereas a Satguru has the power to give. A Guru can show the path that can help a devotee attain the 4 kinds of salvation related to the 3 Lokas. He does not know the technique that can help one attain the real salvation- Param moksh.
@@ -1472,6 +1474,7 @@ At first Param Purush was all alone. When he created Mind, a bit of that element
 ### Didn’t Param Purush know that Niranjan would turn out to be such a Character? If He knew, why did He create him?
 All the children of the same parents don’t have the same nature. Param Purush, in order to increase the Charm of His Amarlok, created Sons simply by the uttering of words. However, Niranjan turned out to be a bad Son and a torturer of the Jivas. When Param Purush was creating Sons, He, in order to create one like Himself, uttered a word in some forceful manner. It was not possible to create one like Himself because He was eternally existed never created and that which is created has to Perish. Except the Soul everything else has been created and as such, will perish with time. When that Son was created, Param Purush, in order to verify whether he was like Himself, entered his being.
 For a moment, He doubted that that was not His own self and so coming out of it at that very moment, He entered into His own. This created all the problem. Had He known that Niranjan would turn out to be such a of fellow, He would never have created him.
+
 ### Why did Param Purush hand over His Souls to Niranjan? Does it mean He threw us into this world, knowingly?
 
 Niranjan Meditated on Param Purush for a pe- riod of 204 Yugas. Param Purush was pleased with his hard worship and asked him to ask for what he wanted. Niranjan prayed to Him to either give him the whole of Amarlok or give him some separate abode. It was only then that Param Purush asked him to create 3 Lokas in Shunya and rule over it. As he had no Jiva to rule over, he Prayed Param Purush to hand over some souls to him. Under the sway of devotion, He created Adhya Shakti and handing over countless Souls to her, asked her to help Niranjan in giving birth to a real creation. He did not ask them to imprison the Souls in bodily cages. Nevertheless, Niranjan, along with Maya, didn’t care for it and instead, put the Souls in bodily cages thus preventing their escape to Amarlok.
@@ -1565,352 +1568,104 @@ falsehood, it is useless to hope for justice here.
 No, The woman is not Maya. In fact, the body is
 Maya whereas the woman represents a class.
 
-### Why do the Gods to desire the human
-birth?
-This is because all other Yonis except that of the
-human beings are called as Bhog Yonis. There one has
-only to reap the fruit of one’s Karmas. There is no scope
-for performing any new Karmas. The Gods reap the good
-fruit of their noble deeds. They can’t do any new Karma.
-However, it is man alone who, in addition to reaping the
-fruit of his Karmas, is at liberty to perform new Karmas as
-well. If he desires, he can attain heaven, Brahm Lok,
-Niranjan Lok or even the Amarlok. So to say, he can reach
-his original abode and attain Permanent Salvation. The
-Gods don’t get such an opportunity. That is why they
-desire to have the human birth.
+### Why do the Gods to desire the human birth?
+This is because all other Yonis except that of the human beings are called as Bhog Yonis. There one has only to reap the fruit of one’s Karmas. There is no scope for performing any new Karmas. The Gods reap the good fruit of their noble deeds. They can’t do any new Karma. However, it is man alone who, in addition to reaping the fruit of his Karmas, is at liberty to perform new Karmas as well. If he desires, he can attain heaven, Brahm Lok, Niranjan Lok or even the Amarlok. So to say, he can reach his original abode and attain Permanent Salvation. The Gods don’t get such an opportunity. That is why they desire to have the human birth.
 
-### The Guru of the woman is her husband. So
-where is the need for her to seek the shelter of some
-other Guru?
-No, it is not so. If it is so, she will also follow the
-path of hell if her husband is following the same. If the
-husband himself has no Spiritual knowledge, how he can
-be expected to give the same to his wife. Remember! He
-who attains Spiritual knowledge , doesn’t remain in the
-company of woman. He will either remain unmarried or
-will take to Sanyas and move out to help others after
-becoming Spiritually enlightened. Therefore, it is foolish
-to call the husband as the Guru of his wife. Still, many
-will not agree to it so easily.
+### The Guru of the woman is her husband. So where is the need for her to seek the shelter of some other Guru?
+No, it is not so. If it is so, she will also follow the path of hell if her husband is following the same. If the husband himself has no Spiritual knowledge, how he can be expected to give the same to his wife. Remember! He who attains Spiritual knowledge , doesn’t remain in the company of woman. He will either remain unmarried or will take to Sanyas and move out to help others after becoming Spiritually enlightened. Therefore, it is foolish to call the husband as the Guru of his wife. Still, many will not agree to it so easily.
 
-
-I’ll tell you about a person in this regard. A certain
-lady came to me. She said that her husband didn’t allow
-her to come to the Ashram. I asked her the reason thereof.
-She said that he believed the Guru of a woman was her
-husband alone. I asked her to bring her husband to me.
-She said that he didn’t agree to it. I asked her to remain
-concentrated on the Naam. She said that he didn’t let her
-do even that much. I told her that he is not interrupting her
-breath and she should recite the Naam in the Breath.
-At some occasion, there was a marriage ceremony in
-Ranjdi. Both of them happened to come there to attend the
-marriage. The lady asked her husband to go to the Ashram
-for a while. The fellow refused to oblige her saying that
-Sahib knew magic whereby he entangled others. However,
-the lady told him that there was no harm in going. It was
-not binding on him to get blessed with Naam. Anyhow,
-the fellow agreed. The lady came to inform me that her
-husband would be coming to me soon. When the lady
-signaled me about his arrival, I told him about the
-necessity of seeking the shelter of a Guru. I said that even
-the Shastras say that one can’t attain salvation without
-seeking the shelter of some Guru. The fellow said that a
-wife needn’t have a Guru. I asked him to quote the
-scripture. He continued to repeat his words without giving
-any evidence. I at once knew that I had to deal with a hard
-nut. I asked him if he had heard of Shiv Ji. He replied in
-affirmative. I asked him if he knew the name of his wife.
-Parvati, he replied. I asked him to tell the name of the
-Guru of Parvati. He replied in negative. I told him that
-Narad Ji was her Guru. If the wife of Shiv Ji had to seek
-the shelter of a Guru, what can be said about a common
-man. Then I asked him if he had heard of Ram. He replied
-in affirmative. I asked him the name of his wife. Sita, he
-said. I asked him the name of the Guru of Sita. Again he
-replied in negative. I told him that Vashishat Muni was the
-
-
-Guru of Sita. Ram Ji never said that he was her Guru.
-Even then, the fellow continued to be unrelenting.
-I told him that he was talking like an dull man who
-lived in Delhi. His wife had a cow. She fed her family on
-the earnings she got from the sale of milk. One day the
-fellow announced that he would give the cow in charity to
-one who made him understand the meaning contained in
-the 18th chapter of the Gita. The wife protested saying
-how will they earn their living. He assured her that none
-would be able to make him understand the meaning
-contained in that chapter. As such, there was nothing to
-worry about. She said that there were many
-knowledgeable persons in Kashi. The fellow consoled her
-saying, even if someone succeeded in making him
-understand in a satisfactory manner, he’ll politely say that
-he had not understood it.
+I’ll tell you about a person in this regard. A certain lady came to me. She said that her husband didn’t allow her to come to the Ashram. I asked her the reason thereof. She said that he believed the Guru of a woman was her husband alone. I asked her to bring her husband to me. She said that he didn’t agree to it. I asked her to remain concentrated on the Naam. She said that he didn’t let her do even that much. I told her that he is not interrupting her breath and she should recite the Naam in the Breath.
+At some occasion, there was a marriage ceremony in Ranjdi. Both of them happened to come there to attend the marriage. The lady asked her husband to go to the Ashram for a while. The fellow refused to oblige her saying that Sahib knew magic whereby he entangled others. However, the lady told him that there was no harm in going. It was not binding on him to get blessed with Naam. Anyhow, the fellow agreed. The lady came to inform me that her husband would be coming to me soon. When the lady signaled me about his arrival, I told him about the necessity of seeking the shelter of a Guru. I said that even the Shastras say that one can’t attain salvation without seeking the shelter of some Guru. The fellow said that a wife needn’t have a Guru. I asked him to quote the scripture. He continued to repeat his words without giving any evidence. I at once knew that I had to deal with a hard nut. I asked him if he had heard of Shiv Ji. He replied in affirmative. I asked him if he knew the name of his wife. Parvati, he replied. I asked him to tell the name of the Guru of Parvati. He replied in negative. I told him that Narad Ji was her Guru. If the wife of Shiv Ji had to seek the shelter of a Guru, what can be said about a common man. Then I asked him if he had heard of Ram. He replied in affirmative. I asked him the name of his wife. Sita, he said. I asked him the name of the Guru of Sita. Again he replied in negative. I told him that Vashishat Muni was the Guru of Sita. Ram Ji never said that he was her Guru. Even then, the fellow continued to be unrelenting.
+I told him that he was talking like an dull man who lived in Delhi. His wife had a cow. She fed her family on the earnings she got from the sale of milk. One day the fellow announced that he would give the cow in charity to one who made him understand the meaning contained in the 18th chapter of the Gita. The wife protested saying how will they earn their living. He assured her that none would be able to make him understand the meaning contained in that chapter. As such, there was nothing to worry about. She said that there were many knowledgeable persons in Kashi. The fellow consoled her saying, even if someone succeeded in making him understand in a satisfactory manner, he’ll politely say that he had not understood it.
 I told the fellow that his arguments were the same as
 that of that fellow. The Shastras say—
+
+```text
 'Dhayan Moolam Guru Roopam'
+```
+
 Meditate on the form of Guru.
-Remember! None can attain God even after
-worshiping many lives. The Ramayana says—
+Remember! None can attain God even after worshiping many lives. The Ramayana says—
+```text
 Guru Bin Bhavjal Nidhi Tarei Na Koyi,
 Hari Virinchi Shanker Sum Hoyi
+```
 Even if one becomes great like Hari or Shiv Ji, one
 can’t succeed in crossing the worldly ocean.
 Shiv Ji took Brahspati as his Guru whereas Brahma
 Ji took Agni ( fire ) as his Guru.
+```text
 Ram Krishan Se Kau Bada, Tin Bhi To Guru Keen
 Teen Lok Ke Naika, Guru Ke Aage Adheen
-Even the Great Souls like Ram and Krishan sought
-the shelter of a Guru. That is to say, the Lords of the 3
-Worlds had to bow before the Guru.
-After studying the Sahastras one feels the necessity
-of seeking the shelter of a Guru but the hypocrite puts
-hurdles on the path.
+```
+Even the Great Souls like Ram and Krishan sought the shelter of a Guru. That is to say, the Lords of the 3 Worlds had to bow before the Guru.
+After studying the Sahastras one feels the necessity of seeking the shelter of a Guru but the hypocrite puts hurdles on the path.
 
 
-### Can’t Param Purush** liberate the souls if
-He desires so.?
-He can do so within a moment but, as explained
-earlier, His word (to Niranjan) will break if He does so.
+### Can’t Param Purush liberate the souls if He desires so.?
+He can do so within a moment but, as explained earlier, His word (to Niranjan) will break if He does so.
 
-###What wrong had the Soul done?
-It failed to seek the shelter of real Satguru who
-could help it reach Amarlok.
-Avail of this opportunity and recognize your
-Satguru.
+### What wrong had the Soul done?
+It failed to seek the shelter of real Satguru who could help it reach Amarlok.
+Avail of this opportunity and recognize your Satguru.
 
-### Does our prayer to get something or to
-find relief from some problem reach God or we con-
-tinue to do so in darkness?
-All the prayers made by the worldly people
-reach Niranjan alone. All the problems related to the body
-have nothing to do with Param Purush. They are related to
-Niranjan alone. That Niranjan gives all the things to the
-people so that they may take him as the real God who
-hears their prayers, by default. He will give only the
-material things and in no case he would give the
-knowledge of the Soul.
-Let me tell you some facts about Nichiketa. His
-father was a king. He wanted to give an old cow in
-charity. He didn’t like the idea. He thought that one
-should give only some fine things in charity. He asked his
-father whom he would give him in charity. The father
-didn’t pay any heed to what he said. Nichiketa repeated
-her question but the king paid no heed to it. However,
-when he continued to repeat his question, his father said
-that he will give him in charity to death. He went to Chitar
-Gupat. Yamraj told him that he was a just king and had
-mistakenly come there. He told him that he was much
-pleased with him and asked what he wanted. The king said
-that he wanted Spiritual knowledge. Yam Raj asked him
+### Does our prayer to get something or to find relief from some problem reach God or we continue to do so in darkness?
+All the prayers made by the worldly people reach Niranjan alone. All the problems related to the body have nothing to do with Param Purush. They are related to Niranjan alone. That Niranjan gives all the things to the people so that they may take him as the real God who hears their prayers, by default. He will give only the material things and in no case he would give the knowledge of the Soul.
+Let me tell you some facts about Nichiketa. His father was a king. He wanted to give an old cow in charity. He didn’t like the idea. He thought that one should give only some fine things in charity. He asked his father whom he would give him in charity. The father didn’t pay any heed to what he said. Nichiketa repeated her question but the king paid no heed to it. However, when he continued to repeat his question, his father said that he will give him in charity to death. He went to Chitar Gupat. Yamraj told him that he was a just king and had mistakenly come there. He told him that he was much pleased with him and asked what he wanted. The king said that he wanted Spiritual knowledge. Yam Raj asked him not to ask for that. He said that he was prepared to give him anything else he wanted.
+I mean to say, knowingly or unknowingly, we don’t succeed in making our prayer heard by the real God. Instead, it reaches Niranjan, the ruler of the 3 Worlds who doesn’t bother about our welfare. He doesn’t want to reveal the real Spiritual knowledge.
 
+### Is it a fact that that there are 6 bodies within our body? If so, which are those 6 bodies?
+Yes, every man has 6 bodies with him. They are—Sathool, Suksham, Karan, Mahakaran, Geyan and Vigyan. Man doesn’t have a complete knowledge of himself. Let’s talk about them one by one.
 
-not to ask for that. He said that he was prepared to give
-him anything else he wanted.
-I mean to say, knowingly or unknowingly, we don’t
-succeed in making our prayer heard by the real God.
-Instead, it reaches Niranjan, the ruler of the 3 Worlds who
-doesn’t bother about our welfare. He doesn’t want to
-reveal the real Spiritual knowledge.
+1. **Sathool Sharir** — It is our own physical body. All can see it. It is a perishable body. The Gods don’t have it. We reside in this very body. That is why all of us have a knowledge of it. However, the power of this body is limited. With our material eyes we can see up to some definite distance only. Likewise, with the material ears we can hear the sound coming from some reasonable distance and range. We can use our mouth to send our sound to some limited distance alone. The same is true in case of other organs as well.
+2. **Suksham Sharir** — We attain this body when we are in sleep. The Jiva finds itself in quite a different kind of world called as the Dreamland. There is a very subtle cells on the left side of our throat. We reach when our concentration fixed there. We take the very world we find there, as the real one. Just as in our awakened state, we take this unreal world that we see with our gross body, as the real one, in the same manner, we take the strange world we see with the subtle body we attain in our dreams, as the real one. Man has a very close relation with this subtle body and the world of dreams. This is because one can see many events related to many past births.
 
-### Is it a fact that that there are 6 bodies
-within our body? If so, which are those 6 bodies?
-Yes, every man has 6 bodies with him. They
-are—Sathool, Suksham, Karan, Mahakaran, Geyan and
-Vigyan. Man doesn’t have a complete knowledge of
-himself. Let’s talk about them one by one.
+In the dream world it is we who are the actors. This sounds very strange. Man is not aware of this. We move from this gross body into that subtle body. After all, what was that which escaped from the gross body and entered into this subtle one? That subtle body does all sorts of works and watches
+all the activities. Then again we return to our gross body. However, we fail to understand as to how we moved out and how we returned. What was that which moved out? The first body became lifeless whereas the second one became alive. If we happen to meet our brother, we at once recognize him. So to say, everything appears to be real. This is the miracle of this second body. What a strange thing! Though we read at many places that this material world is dream like, still we don’t change our thoughts.
+You never think over as to why did you enter into the dream state. A certain scientist has been making a search about the dreams for the past 40 years. Nevertheless, I say I’ll explain to him within a moment all about dreams.
+In the dream, state, if we happen to face sorrows and sufferings, these will give us the same amount of pain as we would feel in our awakened state. On the other hand, if we find pleasures, these would appear to us as much real as we would have felt in our awakened state. No doubt, this human body is of a very rare kind.
+Appearing of every thing as true and real is nothing but a play of our Indrias- Senses.
+When the same Soul is present in all, what is responsible for the difference in the amount of knowledge? This is because of the difference in the structure of different bodies. Some vehicles can move at the speed of 150 Km an hour. However skilled the driver be, he can’t make such a vehicle run at a greater speed. It is the case with the body too. The soul regulates it as per its structure.
 
-1. Sathool Sharir—It is our own physical body. All
-   can see it. It is a perishable body. The Gods don’t have it.
-   We reside in this very body. That is why all of us have a
-   knowledge of it. However, the power of this body is
-   limited. With our material eyes we can see up to some
-   definite distance only. Likewise, with the material ears we
-   can hear the sound coming from some reasonable distance
-   and range. We can use our mouth to send our sound to
-   some limited distance alone. The same is true in case of
-   other organs as well.
-2. Suksham Sharir — We attain this body when we
-   are in sleep. The Jiva finds itself in quite a different kind
-   of world called as the Dreamland. There is a very subtle
-   cells on the left side of our throat. We reach when our
-   concentration fixed there. We take the very world we find
-   there, as the real one. Just as in our awakened state, we
-   take this unreal world that we see with our gross body, as
-   the real one, in the same manner, we take the strange
-   world we see with the subtle body we attain in our
-   dreams, as the real one. Man has a very close relation with
-   this subtle body and the world of dreams. This is because
-   one can see many events related to many past births.
-
-
-In the dream world it is we who are the actors. This
-sounds very strange. Man is not aware of this. We move
-from this gross body into that subtle body. After all, what
-was that which escaped from the gross body and entered
-into this subtle one?
-That subtle body does all sorts of works and watches
-all the activities. Then again we return to our gross body.
-However, we fail to understand as to how we moved out
-and how we returned. What was that which moved out?
-The first body became lifeless whereas the second one
-became alive. If we happen to meet our brother, we at
-once recognize him. So to say, everything appears to be
-real. This is the miracle of this second body. What a
-strange thing! Though we read at many places that this
-material world is dream like, still we don’t change our
-thoughts.
-You never think over as to why did you enter into
-the dream state. A certain scientist has been making a
-search about the dreams for the past 40 years.
-Nevertheless, I say I’ll explain to him within a moment all
-about dreams.
-In the dream, state, if we happen to face sorrows and
-sufferings, these will give us the same amount of pain as
-we would feel in our awakened state. On the other hand, if
-we find pleasures, these would appear to us as much real
-as we would have felt in our awakened state. No doubt,
-this human body is of a very rare kind.
-Appearing of every thing as true and real is nothing
-but a play of our Indrias- Senses.
-When the same Soul is present in all, what is
-responsible for the difference in the amount of
-knowledge? This is because of the difference in the
-structure of different bodies. Some vehicles can move at
-the speed of 150 Km an hour. However skilled the driver
-be, he can’t make such a vehicle run at a greater speed. It
-
-
-is the case with the body too. The soul regulates it as per
-its structure.
-
-3. Karan Sharir—This is a very rare body. It is
-   related to meditation. It is very powerful. Try to
-   understand its power. Suppose you are attending the
-   Satsang and are looking at me and listening to my
-   discourse, but if for a moment divert your concentration to
-   some other thing, you are unable to listen to my words and
-   understand me and even while watching and very much
-   sitting near me. That is to say, the power to see, hear and
-   understand is due to concentration only. If you are able to
-   have a knowledge of this body, you can send it anywhere
-   you like to collect some information about that place.
-   With the power of this very body, sometimes man
-   recollects his old days while at other times he begins to
-   have a glimpse of his future life. Some say they happened
-   to see some evil spirit. It came near due to the power of
-   the Karan Sharir only. Sometimes your attention gets
-   turned to someone even when you haven’t even thought of
-   him. Soon that fellow appears before you. That is to say,
-   the fellow was near you through Karan Sharir. None else
-   was able to sight him. This is, indeed, the miracle of this
-   Karan sharir.
-   Again, sometimes you find someone engrossed in
-   some deep thoughts. You reach near him and ask in which
-   thoughts he has been lost. Sometimes this happens with
-   you as well. So to say, man can find many miracles if he
-   makes a search for the same. Even you yourself fall in
-   such a position. It is a reality but the system of our
-   physical body doesn’t seem to recognize it.
-   A certain Nami- Initiate told me that a Serial related
-   to the past life was being telecast on the TV. He asked if
-   such a thing actually happened. I told him that everyone
-   has a knowledge of his past 100 lives but the capacity of
-   the body is limited. How can we remember the
-   happenings of 100 lives when we can’t recollect even that
-
-
-which we have heard a few moments before? If someone
-makes an attempt to repeat that which he heard some
-minutes before, he will surely forget many things. Then
-how can we ever hope to recollect the happenings of one's
-100 lives?
+3. **Karan Sharir** — This is a very rare body. It is related to meditation. It is very powerful. Try to understand its power. Suppose you are attending the Satsang and are looking at me and listening to my discourse, but if for a moment divert your concentration to some other thing, you are unable to listen to my words and understand me and even while watching and very much sitting near me. That is to say, the power to see, hear and understand is due to concentration only. If you are able to have a knowledge of this body, you can send it anywhere you like to collect some information about that place. With the power of this very body, sometimes man recollects his old days while at other times he begins to have a glimpse of his future life. Some say they happened to see some evil spirit. It came near due to the power of the Karan Sharir only. Sometimes your attention gets turned to someone even when you haven’t even thought of him. Soon that fellow appears before you. That is to say, the fellow was near you through Karan Sharir. None else was able to sight him. This is, indeed, the miracle of this Karan sharir.
+   Again, sometimes you find someone engrossed in some deep thoughts. You reach near him and ask in which thoughts he has been lost. Sometimes this happens with you as well. So to say, man can find many miracles if he makes a search for the same. Even you yourself fall in such a position. It is a reality but the system of our physical body doesn’t seem to recognize it.
+   A certain Nami- Initiate told me that a Serial related to the past life was being telecast on the TV. He asked if such a thing actually happened. I told him that everyone has a knowledge of his past 100 lives but the capacity of the body is limited. How can we remember the happenings of 100 lives when we can’t recollect even that which we have heard a few moments before? If someone makes an attempt to repeat that which he heard some minutes before, he will surely forget many things. Then how can we ever hope to recollect the happenings of one's 100 lives?
 The Hindu religion says—
-
 1. God exists.
 2. The soul is immortal.
-3. The soul has to enter into different bodies as per
-   its Karmas.
+3. The soul has to enter into different bodies as per its Karmas.
+```text
    Janam Ek Nehin Janam Aneka, Chhote Nehin Karam Ko Lekha
-   The Karmas of many lives are with us. We can’t get
-   rid of them.
-   It is only the Soul that remembers the happenings of
-   many lives. Sometimes you say you would see on
-   reaching Amarlok as to what kind of appearance do the
-   Soul, Amarlok, and Param Purush have. However, it is a
-   fact that you have a knowledge of Param Purush, Amarlok
-   as well as the Soul. Believe that, you know all this due to
-   your being a Soul. Nevertheless, your present conscience
-   doesn’t seem to accept it.
-   Our brain turns it as supposition. A horse will
-   collapse if we put 6 quintals of load on it. Likewise, the
-   brain doesn’t want to store the extra knowledge in it. If it
-   tries to do so, one will turn mad. That is why it remains
-   engrossed in the current problems only and terms the
-   information being provided by the Soul as unreal.
-   If a child, right from the childhood, desires to be a
-   wrestler, take it for granted he was a wrestler in his
-   previous birth as well. The same is true in case of other
-   desires like becoming a Sage, a Teacher, a Doctor and
-   alike. In such cases the Mind and the consciousness make
-   the same kind of movement.
-   Vasdev Krishan too tells Arjun that he has no
-   knowledge of his previous births whereas he (Krishan) has
-   a knowledge of the past 100 lives.
-
-
-There is no other system in the world that can enable
-us meet anyone we like. However, this Karan Sharir can
-help us meet our ancestors as well.
-All the religions lay stress on meditation. But it is
-our Mind that causes a hurdle on our path of entering into
-other bodies. It remains engaged in finding as to what is
-right or wrong for the body. It has no power to think
-beyond it.
-We can’t do anything without the proper system.
-Just as we can’t use our nose to see objects and can’t use
-our ears to enjoy fragrance and so on, in the same manner,
-we can’t experience the rare Worlds with the help of this
-physical body. Suppose we want to fly, we won’t be able
-to do so for lack of the needed system in us.
-We watch the outward glimpse of worship where the
-Mahatmas are seen dancing, jumping, weeping and doing
-all such superfluous activities.
+```
+   The Karmas of many lives are with us. We can’t get rid of them.
+   It is only the Soul that remembers the happenings of many lives. Sometimes you say you would see on reaching Amarlok as to what kind of appearance do the Soul, Amarlok, and Param Purush have. However, it is a fact that you have a knowledge of Param Purush, Amarlok as well as the Soul. Believe that, you know all this due to your being a Soul. Nevertheless, your present conscience doesn’t seem to accept it.
+   Our brain turns it as supposition. A horse will collapse if we put 6 quintals of load on it. Likewise, the brain doesn’t want to store the extra knowledge in it. If it tries to do so, one will turn mad. That is why it remains engrossed in the current problems only and terms the information being provided by the Soul as unreal. 
+   If a child, right from the childhood, desires to be a wrestler, take it for granted he was a wrestler in his previous birth as well. The same is true in case of other desires like becoming a Sage, a Teacher, a Doctor and alike. In such cases the Mind and the consciousness make the same kind of movement.
+   Vasudev Krishan too tells Arjun that he has no knowledge of his previous births whereas he (Krishan) has a knowledge of the past 100 lives.
+There is no other system in the world that can enable us meet anyone we like. However, this Karan Sharir can help us meet our ancestors as well.
+All the religions lay stress on meditation. But it is our Mind that causes a hurdle on our path of entering into other bodies. It remains engaged in finding as to what is right or wrong for the body. It has no power to think beyond it.
+We can’t do anything without the proper system. Just as we can’t use our nose to see objects and can’t use our ears to enjoy fragrance and so on, in the same manner, we can’t experience the rare Worlds with the help of this physical body. Suppose we want to fly, we won’t be able to do so for lack of the needed system in us. We watch the outward glimpse of worship where the Mahatmas are seen dancing, jumping, weeping and doing all such superfluous activities.
 Sahib Kabir has said—
+```text
 Surti Se Dekh Sakhi Vo Desh
+```
 One can have the vision of Amarlok through
 concentration alone.
 
-4. Mahakaran Sharir—This is a very rare kind of
-   body. Man practices Yog for attaining it. The Yogis on
-   attaining this body move about in the Brahmands. This
-   body is a storehouse of miraculous powers
-   This body is smaller than even the grain of masoor
-   (a kind of pulse). To attain it, one has to fix concentration
-   at the Trikuti. Disappearing from one place and appearing
-   at some other, is all due to it. It helps in reaching Brahm
-   Lok as well. This is called as the opening of interior eyes
-   as well. Remember! You are not an ordinary person. You
-   are a part of Param Purush.
-5. Geyan Dehi— Getting this Sharir, the Yogi
-   begins to consider himself as Brahm. This is because he
-   attains the power to give birth to a new creation on his
-   own. Whatever he Speaks, begins to happen. Often we
+1. **Mahakaran Sharir** — This is a very rare kind of body. Man practices Yog for attaining it. The Yogis on attaining this body move about in the Brahmands. This body is a storehouse of miraculous powers
+   This body is smaller than even the grain of masoor (a kind of pulse). To attain it, one has to fix concentration at the Trikuti. Disappearing from one place and appearing at some other, is all due to it. It helps in reaching Brahm Lok as well. This is called as the opening of interior eyes as well. Remember! You are not an ordinary person. You are a part of Param Purush.
+2. **Gyan Dehi** — Getting this Sharir, the Yogi begins to consider himself as Brahm. This is because he attains the power to give birth to a new creation on his own. Whatever he Speaks, begins to happen. Often we hear about such and such God. This miracle is due to the attaining of this very sharir.
 
-
-hear about such and such God. This miracle is due to the
-attaining of this very sharir.
-
-6. Vigyan Dehi— On attaining this Sharir, the Mind
+6. **Vigyan Dehi** — On attaining this Sharir, the Mind
    reaches in a state of unconsciousness. So to say, it reaches
    in a state of Coma whereas the Soul becomes very much
    awakened.
    Goswami Ji has described this state in a beautiful
    manner —
+   ```text
    Pug Bina Chaley Sune Bin Kana,
    Binu Karam Karey Vidhi Nana
+   ```
    The devotee can move without feet, can hear without
    ears and can do a lot of works even without any effort
    He also says that the devotee, even without
@@ -1922,112 +1677,48 @@ attaining of this very sharir.
    Dwara. The Ida and Pingla attain a unison when this
    happens. Apart from man, none else is in possession of
    this body.
+   ```text
    Sabb Ki Gathri Lal Hai, Koi Nahi Kangal.
+   ```
    Every human being has great hidden miraculous
    powers within them.
 
-### Param Purush had 16 sons. But why did
-He give the Souls to the bad Son alone?
-The Jivas continued to move about in a joyful
-manner in Amarlok. After a long time the 5th son,
-Niranjan, began to meditate. He meditated on Param
-Purush for a period of 70 Yugas. The latter was pleased
-with his worship and asked the reason behind worshiping
-so hard. Niranjan said that he wanted to have some abode
-of his own. Param Purush gave him Mansrovar (a
-continent of Amarlok ). Niranjan was pleased to have it.
-He began to live there in a joyful manner. However, once
-
-
-again, he began to worship Param Purush. He did so again
-for a period of 70 Yugas.
+### Param Purush had 16 sons. But why did He give the Souls to the bad Son alone?
+The Jivas continued to move about in a joyful manner in Amarlok. After a long time the 5th son, Niranjan, began to meditate. He meditated on Param Purush for a period of 70 Yugas. The latter was pleased with his worship and asked the reason behind worshiping so hard. Niranjan said that he wanted to have some abode of his own. Param Purush gave him Mansrovar (a continent of Amarlok ). Niranjan was pleased to have it. He began to live there in a joyful manner. However, once again, he began to worship Param Purush. He did so again for a period of 70 Yugas.
 Param Purush was pleased and asked what he
 wanted.
+```text
 Itna Thanv Na Mohi Suhai
 Abb Mohi Baksi Deh-Hu Thakurai
 Kai Mohi Dehu Lok Adhikara
 Kai Mohi Dehu Desh Ik Neyara
-Niranjan said that he was not pleased with that
-much. Either He should give him Amarlok or a rare kind
-of Loka where he could have his full sway.
-At this, Param Purush told him that his elder brother
-Kooram had with him a seed of 5 material elements in a
-subtle form. He should go to him and beg from him that
-very seed.
-With that he should create 3 Lokas in Shunya
-(space). Also, he could rule there for a period of 17
-Asankhya Chaukri Yugas.
-Niranja went to Kooram but instead of requesting
-him to give him the seed of 5 material elements and three
-gunas, he took it forcibly from him in a manner one
-squeezes out blood from someone’s body. Kooram Ji
-remained calm and peaceful. But he asked Param Purush
-as to what kind of a devil He had sent to him. He had
-robbed him of the seed of 5 material elements in a forceful
-manner. Param Purush asked him to remain calm saying
-he (Niranjan)was his younger brother.
+```
+Niranjan said that he was not pleased with that much. Either He should give him Amarlok or a rare kind of Loka where he could have his full sway.
+At this, Param Purush told him that his elder brother Kooram had with him a seed of 5 material elements in a subtle form. He should go to him and beg from him that very seed.
+With that he should create 3 Lokas in Shunya (space). Also, he could rule there for a period of 17 Asankhya Chaukri Yugas.
+Niranja went to Kooram but instead of requesting him to give him the seed of 5 material elements and three gunas, he took it forcibly from him in a manner one squeezes out blood from someone’s body. Kooram Ji remained calm and peaceful. But he asked Param Purush as to what kind of a devil He had sent to him. He had robbed him of the seed of 5 material elements in a forceful manner. Param Purush asked him to remain calm saying he (Niranjan)was his younger brother.
 Param Purush thought as to what a kind of Niranjan
 had been created.
-With the seed of 5 material elements Niranjan
-created the 5 material elements (water, fire, air, earth and
-sky). Also, he created 49 crore Yojan Earth, Sun, Moon,
-Stars, Seven Patals etc. He remained in Shunya for some
-time. Nevertheless, it was a lifeless universe as there were
-no Beings. Niranjan thought that the universe without
-
-
-beings was not worth living. As such, he again
-worshipped for a period of 64 Yugas.
+With the seed of 5 material elements Niranjan created the 5 material elements (water, fire, air, earth and sky). Also, he created 49 crore Yojan Earth, Sun, Moon, Stars, Seven Patals etc. He remained in Shunya for some time. Nevertheless, it was a lifeless universe as there were no Beings. Niranjan thought that the universe without beings was not worth living. As such, he again worshipped for a period of 64 Yugas.
 Param Purush asked as to what more he wanted.
 Niranjan said—
+```text
 Dee Jae Khet Beej Nij Sara
-Niranjan prayed that he had created the 3 Lokas but
-there were no Jivas to rule over. He prayed to Him to
-kindly give some hansas to him.
-Then Param Purush desired and created a girl
-(Adhya Shakti) with 8 arms. She offered salutations to
-Him and asked as to why she had been created. Giving her
-infinite number of souls, Param Purush said—
-O daughter! Niranjan is in Mansrovar. He has
-created the 3 Lokas in Shunya. Go to him and help him in
-giving birth to a true and real universe. That is to say, the
-universe had to be created like the one in Amarlok. It was
-a clear message that the souls hadn’t to be imprisoned in
-the bodily cages.
+```
+Niranjan prayed that he had created the 3 Lokas but there were no Jivas to rule over. He prayed to Him to kindly give some hansas to him.
+Then Param Purush desired and created a girl (Adhya Shakti) with 8 arms. She offered salutations to Him and asked as to why she had been created. Giving her infinite number of souls, Param Purush said—
+O daughter! Niranjan is in Mansrovar. He has created the 3 Lokas in Shunya. Go to him and help him in giving birth to a true and real universe. That is to say, the universe had to be created like the one in Amarlok. It was a clear message that the souls hadn’t to be imprisoned in the bodily cages.
 
-### Inspite of being a son of Param Purush,
-why did Niranjan ask for the Jivas? Even if he did so,
-why did he torture them?
-We often hear in the Kathas-Stories that not only
-the Gods but the Demons as well worshipped hard.
-However, the only difference was that whereas the Gods
-asked for the blessings of Lord or sought such powers as
-could be used for the good of others, the demons asked for
-such powers as could make them invincible. Moreover,
-they asked for long lives as well. They used the powers
-attained through blessings only for torturing others.
-Niranjan as well did the same. As he was created by
-the forceful utterance of sound, he turned like a demon.
-He worshiped Param Purush and asked for such things as
-had nothing to do with the good of others. He tortured the
-Jivas and behaved in a very cruel manner with his brother
-Kooram as well. His behavior with Adhya Shakti clearly
+### Inspite of being a son of Param Purush, why did Niranjan ask for the Jivas? Even if he did so, why did he torture them?
+We often hear in the Kathas-Stories that not only the Gods but the Demons as well worshipped hard. However, the only difference was that whereas the Gods asked for the blessings of Lord or sought such powers as could be used for the good of others, the demons asked for such powers as could make them invincible. Moreover, they asked for long lives as well. They used the powers attained through blessings only for torturing others.
+Niranjan as well did the same. As he was created by the forceful utterance of sound, he turned like a demon. He worshiped Param Purush and asked for such things as had nothing to do with the good of others. He tortured the Jivas and behaved in a very cruel manner with his brother Kooram as well. His behavior with Adhya Shakti clearly shows that he was a demon and not a noble and virtuous Son of Param Purush.
+Nevertheless, though Niranjan imprisoned the souls in bodily cages and gave them all sorts of tortures, yet he couldn’t do so in the real sense as Param Purush had made Souls completely safe and secure from harms. The tortures were, in fact, suffered by Niranjan himself.
 
-
-shows that he was a demon and not a noble and virtuous
-Son of Param Purush.
-Nevertheless, though Niranjan imprisoned the souls
-in bodily cages and gave them all sorts of tortures, yet he
-couldn’t do so in the real sense as Param Purush had made
-Souls completely safe and secure from harms. The tortures
-were, in fact, suffered by Niranjan himself.
-
-### Who created Amarlok, 14 Lokas,
-Niranjan, Maya, Souls, Brahmand, the gods and the
-goddesses etc.? And how were these created?
+### Who created Amarlok, 14 Lokas, Niranjan, Maya, Souls, Brahmand, the gods and the goddesses etc.? And how were these created?
 Once Dharam Dass Ji, in order to know about
 Amarlok and the creation of the universe, prayed to Sahib
 Kabir thus—
+```text
 Abb Sahib Mohe Deu Batai, Amarlok Ki Kahan Rahai
 Kaun Deep Hans Ko Vasa, Kaun Deep Purush Rah Vasa
 Teen Lok Utpati Bakho, Baranhuskal Goye Jani Rakho
@@ -2036,6 +1727,7 @@ Kaise Char Khani Vistari, Kaise Jeev Kaal Vash Dari
 Trideva Kaun Vidhi Bhayeu, Kaise Mahi Akash Nirmayeu
 Chander Surya Kahu Kaise Bhayeu,Kaise Taragan Sub Thayeu
 Kis Vidhi Bhei Sharir Ki Rachna Bhasho Sahib Utpati Bachna
+```
 O Sahib! Kindly tell me where does that Amarlok
 lie? At which place are the Jivas to be found there and
 how were the 3 Lokas, Kaal Purush and 16 sons created?
@@ -2044,6 +1736,7 @@ did the Souls get entrapped in the net of Kaal Purush?
 How were the Tridevas, the earth, sky and the physical
 bodies created? Kindly tell me in detail all about this.
 Sahib Kabir said—
+```text
 Tabb Ki Baat Sunhu Dharam Dassa,
 Jab Nehin Mahi Patal Akasha
 Jabb Nehin Kooram Brah Aur Shesh,
@@ -2051,30 +1744,15 @@ Jab Nehin Sharad Gauri Ganesha
 Jabb Nehin Hatey Niranjan Raya,
 Jin Jeevan Kah Bandhi Jhulaya
 Taitees Koti Devta Nahin,
-
-
 Aur Anek Bataun Kahin
 Brahma Vishnu Mahesh Ne Tahiya,
 Shaster Ved Puran Na Kehya
 Tabb Sub Rahe Purush Ke Mahin,
 Jyuin Batt Briksh Madhya Rah Shayin
-O Dharam Dass! I am talking about the time when
-there was neither earth nor sky. There was no existence of
-Kooram, Barah, Sharad, Gauri, Ganesh, 33 crore gods and
-even Niranjan, the torturer of the Jivas. What more can I
-say, there was no existence of Brahma, Vishnu, Mahesh,
-The Vedas, The Shastras and the Puranas even. But there
-was the One.
-Sahib Kabir says that at first Param Purush was all
-alone. He had no companion. Neither He has ever been
-created nor He will ever perish.
-That which is created, has to perish. But how can
-Param Purush who has never been created, perish? Sahib
-kabir tells Dharam Dass that Sakar, Nirakar, abodes—big
-and small—were created afterwards. As such, whose
-witness can he give? Even the 4 Vedas throw no light on
-the secrets related to Param Purush. They talk up to the
-limit of Niranjan alone.
+```
+O Dharam Dass! I am talking about the time when there was neither earth nor sky. There was no existence of Kooram, Barah, Sharad, Gauri, Ganesh, 33 crore gods and even Niranjan, the torturer of the Jivas. What more can I say, there was no existence of Brahma, Vishnu, Mahesh, The Vedas, The Shastras and the Puranas even. But there was the One.
+Sahib Kabir says that at first Param Purush was all alone. He had no companion. Neither He has ever been created nor He will ever perish.
+That which is created, has to perish. But how can Param Purush who has never been created, perish? Sahib kabir tells Dharam Dass that Sakar, Nirakar, abodes—big and small—were created afterwards. As such, whose witness can he give? Even the 4 Vedas throw no light on the secrets related to Param Purush. They talk up to the limit of Niranjan alone.
 Describing the creation of the earth, sky, Brahmand,
 Niranjan, Tridevas and the like, Sahib Kabir says that first
 of all Param Purush desired and uttered a word. It created
@@ -2091,174 +1769,88 @@ unmanifest from sight but after entering into it, He was
 called as Satya Purush.
 
 
-The light that was Satya Purush Himself, came to be
-called as Amarlok. Imitating this, Niranjan, first of all
-created the 3 Lokas with the help of 5 material elements
-and then hid himself from sight and got absorbed into the
-3 Lokas. Just as Amarlok is the body of Satya Purush, the
-3 Lokas are the body of Niranjan.
-Satya Purush was still all alone. He desired and
-jerked away that light—His own self—from Him. Infinite
-number of droplets were formed out of it. These returned
-back to that light. It was just like the formation of droplets
-when one takes a handful of water, say from the sea, and
-throws it upward. However, the difference between the
-two was that while the droplets of water again fall into the
-sea and become a part of it, the droplets of light though
-did return to the light but they didn’t become a part of it.
-This is because Satya Purush desired that these should
-retain their separate identity. These very droplets were
-called as Hansas (Souls). Those Hansas began to move
-about in that light deriving indescribable bliss.
-Such a movement of the Hansas was miraculous,
-indeed. This is because the droplets of the sea have no
-separate identity. The jivas began to move about in that
-light in a manner a fish moves in water. Param Purush
-derived much pleasure from this and began to love those
-Hansas. They continued to enjoy like this for a long time.
+The light that was Satya Purush Himself, came to be called as Amarlok. Imitating this, Niranjan, first of all created the 3 Lokas with the help of 5 material elements and then hid himself from sight and got absorbed into the 3 Lokas. Just as Amarlok is the body of Satya Purush, the 3 Lokas are the body of Niranjan.
+Satya Purush was still all alone. He desired and jerked away that light—His own self—from Him. Infinite number of droplets were formed out of it. These returned back to that light. It was just like the formation of droplets when one takes a handful of water, say from the sea, and throws it upward. However, the difference between the two was that while the droplets of water again fall into the sea and become a part of it, the droplets of light though did return to the light but they didn’t become a part of it. This is because Satya Purush desired that these should retain their separate identity. These very droplets were called as Hansas (Souls). Those Hansas began to move about in that light deriving indescribable bliss.
+Such a movement of the Hansas was miraculous, indeed. This is because the droplets of the sea have no separate identity. The jivas began to move about in that light in a manner a fish moves in water. Param Purush derived much pleasure from this and began to love those Hansas. They continued to enjoy like this for a long time.
+```text
 Sada Anand Hoat Hai Va Ghar, Kabhu Na Hoat Udasa.
-There are bliss and bliss alone to be seen in that
-Amarlok. No sorrows and sufferings are to be found there.
-There the light of a soul is equivalent to that of 16
-Suns whereas the light of even a single pore of Param
-Purush is equivalent to that of crores of Suns and Moons.
-If it is so, just imagine what kind of Param Purush
-Himself would be. It is really beyond imagination and
-description.
-Then Param Purush created Sons simply by the
-uttering of words. That is to say, every word spoken by
-
-
-Him was turning into a Son. The second word created
-Kooram. Likewise, the third word created Geyan and the
-4th one created Vivek.
-Param Purush saw that every word spoken by Him
-was changing into a Son, so He thought of making one
-like Himself. As such, He uttered a word in a forceful
-manner. Niranjan (Mind) was crerated out of it. In order to
-know whether the 5th Son was like Him or not, He
-merged Himself into him. For split of a moment He
-doubted that this body was not His own one. As such, He
-pulled Himself out of it and again entered into His own.
-Then He uttered the 6th word. Sahaj was created out
-of it. Then the 7th word created Santosh, the 8th one
-created Chetna, the 9th one created Anand, the 10th one
-created Khyama, the 11th one created Nishkam, the 12th
-one created Jalrangi, the 13th one created Achint, the 14th
-one created Prem, the 15th one created Deen Dyal
-whereas the 16th one created Dhairya. Param Purush
-created these sons simply to add glory to His Amarlok. All
-of them began to move about in that Amarlok. But the
-Soul was not created out of word. Sahib Kabir says;
+```
+There are bliss and bliss alone to be seen in that Amarlok. No sorrows and sufferings are to be found there. There the light of a soul is equivalent to that of 16 Suns whereas the light of even a single pore of Param Purush is equivalent to that of crores of Suns and Moons. If it is so, just imagine what kind of Param Purush Himself would be. It is really beyond imagination and description.
+Then Param Purush created Sons simply by the uttering of words. That is to say, every word spoken by Him was turning into a Son. The second word created Kooram. Likewise, the third word created Geyan and the 4th one created Vivek.
+Param Purush saw that every word spoken by Him was changing into a Son, so He thought of making one like Himself. As such, He uttered a word in a forceful manner. Niranjan (Mind) was crerated out of it. In order to know whether the 5th Son was like Him or not, He merged Himself into him. For split of a moment He doubted that this body was not His own one. As such, He pulled Himself out of it and again entered into His own.
+Then He uttered the 6th word. Sahaj was created out of it. Then the 7th word created Santosh, the 8th one created Chetna, the 9th one created Anand, the 10th one created Khyama, the 11th one created Nishkam, the 12th one created Jalrangi, the 13th one created Achint, the 14th one created Prem, the 15th one created Deen Dyal whereas the 16th one created Dhairya. Param Purush created these sons simply to add glory to His Amarlok. All of them began to move about in that Amarlok. But the Soul was not created out of word. Sahib Kabir says;
+```text
 Jeebra Ansh Purush Ka Aahi, Aadi Ant Kau Janat Nahin
+```
 Sahib says that jiva is the very part of Param Purush.
 None has any information about its beginning and ending.
+
+----
+```text
 Eeshwar Ansh Jeev Avinaashi, Chetan, Amal, Sehaj, Sukhrasi.
-This Soul is a part of the Supreme Lord. It is
-Immortal (Avinaashi), spiritually active (Chetan), pure
-and free of vices (Amal). It is free from deceit and is
-spiritually simple (Sehaj). Besides, it is full of joy,
-happiness and bliss (Sukhrasi).
-###What is the secret related to the Chakras?
-There are 8 Chakras to be found in our body.
-However, the Yogis have a knowledge of the 7 Chakras
-alone. On the other hand, the Sants start their Journey
-from the 8th Chakra.
-
-
-Some take it as one and the same thing. There seems
-to be no logic in it.
-Mooladhar Chakra is the abode of Ganesh Ji, the
-navel region is the abode of Vishnu Ji whereas Anhad
-Chakra is the abode of Shiv Ji. He is the God of ego. In
-this very Chakra (Plexis) a devotee experiences the feeling
-of ‘I am’. Vishudh Chakra is the abode of Sarasvati.
+```
+This Soul is a part of the Supreme Lord. It is Immortal (Avinaashi), spiritually active (Chetan), pure and free of vices (Amal). It is free from deceit and is spiritually simple (Sehaj). Besides, it is full of joy, happiness and bliss (Sukhrasi).
+----
+### What is the secret related to the Chakras?
+There are 8 Chakras to be found in our body. However, the Yogis have a knowledge of the 7 Chakras alone. On the other hand, the Sants start their Journey from the 8th Chakra. Some take it as one and the same thing. There seems to be no logic in it.
+Mooladhar Chakra is the abode of Ganesh Ji, the navel region is the abode of Vishnu Ji whereas Anhad Chakra is the abode of Shiv Ji. He is the God of ego. In this very Chakra (Plexis) a devotee experiences the feeling of ‘I am’. Vishudh Chakra is the abode of Sarasvati.
 All the tunes emanate from here. Agya Chakra is the
 abode of Soul. The act of breathing takes place here.
 Sahastarsar is the 7th Chakra whereas the 8th Chakra is
 the abode of Satguru. But the Yogis remain confined to
 the 7th Chakra alone.
+```text
 Aath Ataki Atari Manjhara, Dekha Purush Neyara
 Nirakar Aakar Na Jyoti, Nehin Vah Ved Vichara
 Ve Sahib Sub Sant Pukara, Aur Pakhand Hai Sara
-In the abode of Param Purush there is nothing like
-Nirakar or Aakar. It is beyond the reach of the Vedas. The
-Sants have called Sahib as the only reality whereas
-everything else are described as unreal and falsehood.
-The Sants have talked of the 8th Chakra as well as of
-the 9th that is a hidden. When the Yogis have knowledge
-of the seven Chakras alone, how can we take it as one and
-the same thing? Reaching the 7th Chakra, the devotee
-attains the Vigyan dehi. They don’t say anything about the
-8th Chakra.
+```
+In the abode of Param Purush there is nothing like Nirakar or Aakar. It is beyond the reach of the Vedas. The Sants have called Sahib as the only reality whereas everything else are described as unreal and falsehood.
+The Sants have talked of the 8th Chakra as well as of the 9th that is a hidden. When the Yogis have knowledge of the seven Chakras alone, how can we take it as one and the same thing? Reaching the 7th Chakra, the devotee attains the Vigyan dehi. They don’t say anything about the 8th Chakra.
+----
+```text
 Khaskhas Ke Daney Ke Under, Shehar Khuda Ka Basta Hai.
 Per Bin Mehar Murshid Ke Tu, Nahak Mein Hi Pachta Hai.
+```
 The whole of the city of Param Purush lies within a
 small grain of Khaskhas (a plant) but it is only the real
 Satguru who can take you there.
+----
+
 ### What are the 5 Mudras? Can’t we attain**
-Param Purush with the help of these?
-The 5 Mudras are related to the Yog Matt
-(Worship of Formless) and in this Matt the devotee has to
-earn his own merits. However, on the basis of earnings,
-
-
-none can attain Param Purush even if he worships for
-crores of years.
-A devotee can’t go beyond the limit oif Niranjan on
-the basis of these postures. These Mudras are based on the
-5 words. It is God who had uttered these words. These
-are:- Sohang, Satt, Jyoti Niranjan, R- ranker and Aunkar.
-It is Sahib who gave these words. That is to say, it is God
-who uttered these words (to manifest elements) but none
-of these words is God Himself. Therefore, those who call
-the Word as God, worship Niranjan and not the real Sahib.
-Using these 5 Mudras, our ancestors labored hard
-and left behind their achievements and experiences. Sahib
-Kabir has not refuted these. He has simply said that this is
-Yog and not Spiritualism. These 5 Mudras are—
-Chachri Mudra:-
+Param Purush with the help of these? The 5 Mudras are related to the Yog Matt (Worship of Formless) and in this Matt the devotee has to earn his own merits. However, on the basis of earnings, none can attain Param Purush even if he worships for crores of years.
+A devotee can’t go beyond the limit oif Niranjan on the basis of these postures. These Mudras are based on the 5 words. It is God who had uttered these words. These are:- Sohang, Satt, Jyoti Niranjan, R- ranker and Aunkar. It is Sahib who gave these words. That is to say, it is God who uttered these words (to manifest elements) but none of these words is God Himself. Therefore, those who call the Word as God, worship Niranjan and not the real Sahib.
+Using these 5 Mudras, our ancestors labored hard and left behind their achievements and experiences. Sahib Kabir has not refuted these. He has simply said that this is Yog and not Spiritualism. These 5 Mudras are—
+1. **Chachri Mudra:-**
+```text
 Jyoti Niranjan Chachri Mudra, So Hai Nainan Mahin
 Tehi Ko Jana Gorakh Yogi,Maha Tej Hai Tahi
+```
 This Mudra has its place in eyes center. Here the
 word ‘Jyoti Niranjan’ is recited ( fire element). Gorakh
 yogi practiced it. It gave him a great pleasure.
-Those who practiced it were Brahmcharis. Now even
-the family holders are seen talking about it. They can’t
-succeed in it as it needs much energy.
+Those who practiced it were Brahmcharis. Now even the family holders are seen talking about it. They can’t succeed in it as it needs much energy.
+```text
 Jahan Bhog Tahan Yog Vinasha
+```
 Where there is bhog, there is no place for Yog.
-Practice of this Mudra can’t help in attaining Soul
-realization. Human body is full of numerous miraculous
-powers. Everything is to be found in it. That is why it has
-been called as the Naraini Chola. A devotee can see many
-miraculous things when he succeeds in awakening the
-related cell centers.
-We are living in the Scientific age. The Doctors have
-succeeded in having the knowledge of almost every pore
-of the body. Nevertheless, the scientists are unable to
-know all these knowledge related to the cell centers. In
-this Chachri Mudra, the devotee experiences many
-
-
-miraculous things. Fixing of concentration opens the
-centers in a manner a key opens the lock. When all the
-cells get awakened, the devotee attains many kinds of
-miraculous powers. It enables him to see many Universes
-as Alakh Brahm (Kal Niranjan pervading space). That is
-why the Yogis talk about the Alakh Brahm.
+Practice of this Mudra can’t help in attaining Soul realization. Human body is full of numerous miraculous powers. Everything is to be found in it. That is why it has been called as the Naraini Chola. A devotee can see many miraculous things when he succeeds in awakening the related cell centers.
+We are living in the Scientific age. The Doctors have succeeded in having the knowledge of almost every pore of the body. Nevertheless, the scientists are unable to know all these knowledge related to the cell centers. In this Chachri Mudra, the devotee experiences many miraculous things. Fixing of concentration opens the centers in a manner a key opens the lock. When all the cells get awakened, the devotee attains many kinds of miraculous powers. It enables him to see many Universes as Alakh Brahm (Kal Niranjan pervading space). That is why the Yogis talk about the Alakh Brahm.
 Seeing the great light there, it has been taken as God
 Himself.
-Bhuchri Mudra :-
+2. **Bhuchri Mudra** :-
+```text
 Shabad Aunkar Bhoochri Mudra, Trikuti Hai Asthana
 Veas Dev Tako Pahichana, Chand Surya So Jana.
-In this Mudra the word ‘Aunkar’ is recited. Its place
+```
+In this Mudra the word ‘onkar’ is recited. Its place
 is at Trikuti. Vyas Dev practiced it and was able to see the
 expanse of Sun, moon and Planets.
 A devotee can have visions after fixing his
 concentration at this point (Water element). So to say,
 concentration is the Master key to attain anything.
-Dheyan Hi Ved Shaster Kahat Hain, Dheyan Hi Ved Bakhana.
+```text
+Dhyaan Hi Ved Shaster Kahat Hain, Dhyaan Hi Ved Bakhana.
+```
 The Vedas and the Shastras have described the
 miracle of concentration (Ekagratha). Many devotees in
 our country are engaged in fixing concentration at this
@@ -2267,47 +1859,51 @@ have failed to attain real Spiritual knowledge.
 During his dialogue with Gorakh Yogi, Sahib had
 asked him where he would fix his concentration when Ida,
 Pingla and even Sushumna will perish.
-Agochari Mudra:-
+3. **Agochari Mudra**:-
+```text
 Sohang Shabad Agochari Mudra, Bhanwar Gufa Asthana.
 Shuk Dev Tako Pahichana, Sun Anhad Ki Tana.
-In this Mudra the word ‘Sohang’ is recited. Here the
-concentration is fixed in Bhanwar Gufa. Shuk Dev
-practiced this Mudra and listened to the musical notes
-emanating from there (Air element). This Mudra is of a
-superior than the Bhuchri Mudra. There is awareness as
-well as pleasure to be found there. Some get absorbed in
-the musical notes emanating from there. However, these
-
-
-can’t help us realize the ultimate reality because all these
-will perish.
+```
+In this Mudra the word **‘Sohang’** is recited. Here the concentration is fixed in Bhanwar Gufa. Shuk Dev practiced this Mudra and listened to the musical notes emanating from there (Air element). This Mudra is of a superior than the Bhuchri Mudra. There is awareness as well as pleasure to be found there. Some get absorbed in the musical notes emanating from there. However, these can’t help us realize the ultimate reality because all these will perish.
+```text
 Jap Marey Ajapa Marey, Anhad Bhi Mer Jaye
 Surti Samani Shabad Mein, Us Ko Kaal Na Khaye
+```
 Recitation by mouth and the inward recitation are
 bound to perish. It is only the Surti ( present in the Naam
 itself ) that doesn’t perish. That is to say, it is neither the
 Dhunatmic (Sound) word nor the Varnatmic (Alphabat)
 word.
+```text
 So To Shabad Videh
+```
 Sahib Kabir says that it is the Soundless Sound.
+```text
 Do Bin Hoye Na Adhar Awaza
+```
 The Sound can be produced only when two things
 impact. Where two things act, there is Maya. At present
 many devotees practice this Mudra.
-Unmuni Mudra:-
+4. **Unmuni Mudra**:-
+```text
 Satt Shabad So Unmuni Mudra, Soi Akash Sanehi
 Tamein Jhilmil Joat Dikhave, Jana Janak Vidhehi
+```
 In Unmuni Mudra, it is the word ‘Satt’ that is recited
 (Earth Element). Here one can see a great light. The king
 Janak practiced this Mudra.
-Khechri Mudra;-
+5. **Khechri Mudra** :-
+```text
 R-Rankar Khechri Mudra Dasvan Dwar Thikana
 Brahma, Vishnu, Mahesh Deva, R-Rankar Ko Jana
+```
 In this Mudra the devotee has to fix his concentra-
 tion at the 10th Dwara. Here the word ‘R-rankar’ is recited
 (Space-ether element). Brahma, Vishnu and Mahesh
 practiced this Mudra.
+```text
 Shiv, Gorakh So Pach- Pach Harey, Is Kaya Ka Bheid Na Paye
+```
 This body is really full of miracles. Even Shiv and
 Gorakh couldn’t succeed in fully unfolding the secrets
 related to it.
@@ -2315,53 +1911,31 @@ Though opening of the 10th Dwara can enable a
 devotee to move anywhere he likes but he can’t succeed in
 attaining his real target, Salvation (Param Moksh).
 Sahib Kabir says —
-
-
+```text
 Sidh Sadh Tridev Adi Le, Paanch Shabad Mein Atke
 Mudra Sadh Rahey Ghatt Bheeter, Phir Aundhe Munh Latke
+```
 Even the great sages and Tridevas remained en-
 tangled in the net of these 5 words. However, they had,
 once again, to take birth hanging upside down from the
 womb of mother.
 
-### Does the Soul on reaching Amarlok,
-remember this universe?
-No, it doesn’t remember anything at all. It for-
-gets every thing related to this earth soon after reaching
-there (No Mind). So to say, the one gets absorbed in
-Immense pleasures there.
+### Does the Soul on reaching Amarlok, remember this universe?
+No, it doesn’t remember anything at all. It for- gets every thing related to this earth soon after reaching there (No Mind). So to say, the one gets absorbed in Immense pleasures there.
 
-### After returning to this world from Sat
-Lok, does Jiva remember anything about that World.
-Yes, It does remembers it. Had it not been true,
-how can I give a description of the rare light, that is all
-together different from the light to be found in this
-universe. Nevertheless, you have forgotten all about it.
-This is on account of your long association with the
-Mayaic worlds.
-I say, you know about all your births but you have
-no power to recollect them. Wandering in various Yonis -
-repeated births has made you forget all about this.
+### After returning to this world from Sat Lok, does Jiva remember anything about that World.
+Yes, It does remembers it. Had it not been true, how can I give a description of the rare light, that is all together different from the light to be found in this universe. Nevertheless, you have forgotten all about it. This is on account of your long association with the Mayaic worlds.
+I say, you know about all your births but you have no power to recollect them. Wandering in various Yonis - repeated births has made you forget all about this.
 
+```text
 Satguru Murti Ko Dhyana, Take Sanmukh Vinti Thana.
+```
 Means keep concentration ever on Satguru
 
-### How does the Soul feel on reaching back to
-Sat Lok?
-On reaching there, it recollects that it was its
-own abode. It finds all as familiar ones. On having the
-vision of Param Purush, it doesn’t think it has seen Him
-for the first time. So to say, it feels that Amarlok is its real
+### How does the Soul feel on reaching back to Sat Lok?
+On reaching there, it recollects that it was its own abode. It finds all as familiar ones. On having the vision of Param Purush, it doesn’t think it has seen Him for the first time. So to say, it feels that Amarlok is its real abode. The time it spent in the universe of Kaal was unreal like the dream.
 
-
-abode. The time it spent in the universe of Kaal was
-unreal like the dream.
-
-### After the departure, the Mind and
-memory are dorment, than how is it possible to
-remember for some time that there was a world and
-how it can one remember existence of that world after
-returning from Amarlok?
+### After the departure, the Mind and memory are dorment, than how is it possible to remember for some time that there was a world and how it can one remember existence of that world after returning from Amarlok?
 It is the Mool Surti (Basic awareness in
 concentration) that makes us remember all this. This is
 really a very wonderful and surprising thing. When there
@@ -2384,11 +1958,8 @@ though the Soul has no visible eyes, yet it is able to see in
 all the directions. Likewise, it can walk without legs and
 can speak without the mouth. Therefore, it is but natural
 that remembrance is possible without the brain.
-### Even Sahib Kabir has talked about Ram at
-many places. If he has talked about the mode of
-worship that is altogether different from that of Sagun
-and Nirgun, then which is the Ram he has talked
-about?
+
+### Even Sahib Kabir has talked about Ram at many places. If he has talked about the mode of worship that is altogether different from that of Sagun and Nirgun, then which is the Ram he has talked about?
 
 
 Sahib Kabir has talked about 4 Rams. The Sants
@@ -2396,135 +1967,73 @@ have used the language of the worldly people to enable
 them understand their views in a better way. The Ram
 they have talked about is Sahib Param Purush Himself.
 They have clarified it in a beautiful way.
+```text
 Sakar Ram Dashrath Ka Beta, Nirakar Ram Ghat Ghat Leta.
 Bindu Ram Jin Jagat Pasara, Niralambh Ram Subhi Te
 Neyara.
+```
 Sakar Ram is the son of king Dashrath, Nirakar
 Ram is present in every body. The Bindu Ram (Sperm) is
 responsible for the manifestation of the beings whereas
 the Niralamb Ram is the rarest of all.
-Ram, the worldly people have been worshiping, falls
-in the category of Sakar Ram. At many places the Sants
-have been taken as the worshiper of Nirakar Ram. This is
-not correct. This Nirakar Ram is none else but Niranjan
-himself who is present within all in the guise of Mind, but
-that Ram too will perish. The third Ram is the semen that
-is responsible for the entire creation. However, the 4th
-Ram never perishes. It is this Ram the Sants have called as
-Sahib- Param Purush- Sat Purush.
-Often we find some words related to the Sagun as
-well as the Nirgun worship in the sayings of the Sants.
-This is because they had worshiped and spoken on
-Niranjan before getting blessed with Naam from Sahib
-Kabir.
-Further, at many places the Sants have talked about
-the secrets related to Yog as well. They have also talked
-about the musical notes emanating from within and the
-10th Dwara. The people begin to think as if the Sants have
-described the significance of Yog. However, this is not the
-case. They have only tried to make us understand the
-limitation of Yog. Along with that they have described
-the importance of Sar Shabad (Sar or Satya Naam). This
-Naam is called as the Soundless Sound. They are giving a
-description of the musical notes which are heard within
+Ram, the worldly people have been worshiping, falls in the category of Sakar Ram. At many places the Sants have been taken as the worshiper of Nirakar Ram. This is not correct. This Nirakar Ram is none else but Niranjan himself who is present within all in the guise of Mind, but that Ram too will perish. The third Ram is the semen that is responsible for the entire creation. However, the 4th Ram never perishes. It is this Ram the Sants have called as Sahib- Param Purush- Sat Purush.
+Often we find some words related to the Sagun as well as the Nirgun worship in the sayings of the Sants. This is because they had worshiped and spoken on Niranjan before getting blessed with Naam from Sahib Kabir.
+Further, at many places the Sants have talked about the secrets related to Yog as well. They have also talked about the musical notes emanating from within and the 10th Dwara. The people begin to think as if the Sants have described the significance of Yog. However, this is not the case. They have only tried to make us understand the limitation of Yog. Along with that they have described the importance of Sar Shabad (Sar or Satya Naam). This Naam is called as the Soundless Sound. They are giving a description of the musical notes which are heard within the human body, it was meant to describe their limit. Only understand this much that the Sants have described this universe as the abode of Kal Purush and the Amarlok as the abode of Param Purush from where the souls have come. So there is no need to wander outside. The key to Amarlok is the Sar Shabad that is in the possession of the Sants alone.
 
+`Sar Naam Satya Purush Kahaya`  
 
-the human body, it was meant to describe their limit. Only
-understand this much that the Sants have described this
-universe as the abode of Kal Purush and the Amarlok as
-the abode of Param Purush from where the souls have
-come. So there is no need to wander outside. The key to
-Amarlok is the Sar Shabad that is in the possession of the
-Sants alone.
-Sar Naam Satya Purush Kahaya
 The Sar Naam itself has been called as Satya Purush.
 So remember! It is the rare Ram, that the Sants have
 talked about.
 
-### If there is some Param Purush, Why don’t**
-we find a mention of it in Religious Scriptures?
-All the Dharm Shastras were produced from the
-sayings of Niranjan (Etherial Voice-Sound-Breath)
-whereas the sayings of Sahib Kabir owe their origin to
-Sant Kabir Sahib himself. The Vedas or Scriptures
-contain all that Niranjan said. It was necessary for him to
-hide the secret related to Param Purush otherwise he
-couldn’t keep the Individual beings in his net of Maya.
-That is why he spoke of his own glory only and didn’t
-make any mention of Param Purush in those Religious
-Scriptures.
+## why-param-purush-not-in-scriptures
+### If there is some Param Purush, Why don’t we find a mention of it in Religious Scriptures?
+All the Dharm Shastras were produced from the sayings of Niranjan (Etherial Voice-Sound-Breath) whereas the sayings of Sahib Kabir owe their origin to Sant Kabir Sahib himself. The Vedas or Scriptures contain all that Niranjan said. It was necessary for him to hide the secret related to Param Purush otherwise he couldn’t keep the Individual beings in his net of Maya. That is why he spoke of his own glory only and didn’t make any mention of Param Purush in those Religious Scriptures.
+```text
 Ved Charon Nehin Janat, Satya Purush Kahaniyan
+```
 The Vedas don’t throw any light on the stories re-
 lated to Satya Purush.
+```text
 Ved Hamara Bheid Hain, Hum Vedan Ke Mahin.
 Jaun Bheid Mein Main Bason, Vedbhi Janat Nahin.
+```
 Sant Kabir Sahib says that the Vedas have in them
 the secrets of all of us. Nevertheless, even they can’t tell
 about the secret of my abode.
+```text
 Iske Aage Bhed Hamara, Janey Ga Koyi Jananhara.
 Kahein Kabir Janey Ga Soyi, Ja Per Daya Satguru Ki Hoyi.
-
-
+```
 Sant Kabir Sahib says that his mystery is far beyond
 the limits of Niranjan. Only such a devotee as has the
 blessings of a Satguru with him, can know that.
 
-### What is the difference between Satsang
-and Katha?
-‘Katha’ means reciting that which happened in remote
-past. The Soul has nothing to do with it. These discourses
-appeals to the intellect (Mind is pleased with it not the
-Soul). On the other hand, Satsang (Association with
-Knower of Truth-Satguru) is that where every word
-spoken is related to the Soul. A Story telling can be done
-by anyone. It is memorised and then told to others.
-However, Satsang provides you the Devotion. That is why
-the Sants have talked about Satsang alone.
-Satsang provides you with three blessings they are:
-Satsang resolves the doubts, helps to concentrate on
-Satguru, and charges you with Spiritual powers Being in
-the company of such Satguru and developing devotion is
-known as Satsang. A moment with such a Sant in devotion
-is called Satsang, it is said-
+## What is the difference between Satsang and Katha
+### What is the difference between Satsang and Katha?
+‘Katha’ means reciting that which happened in remote past. The Soul has nothing to do with it. These discourses appeals to the intellect (Mind is pleased with it not the Soul). On the other hand, Satsang (Association with Knower of Truth-Satguru) is that where every word spoken is related to the Soul. A Story telling can be done by anyone. It is memorised and then told to others. However, Satsang provides you the Devotion. That is why the Sants have talked about Satsang alone.
+Satsang provides you with three blessings they are: Satsang resolves the doubts, helps to concentrate on Satguru, and charges you with Spiritual powers Being in the company of such Satguru and developing devotion is known as Satsang. A moment with such a Sant in devotion is called Satsang, it is said-
+```text
 Sat Swag Au Apvarg, Dharaun Tula Ik Ang.
 Tahi Sakal Mil Nahin Tule, Je Kshan Lau Satsang.
+```
 Therefore
+```
 Shakti Bina Nahin Panth Chalaya.
+```
 The panth shouldn’t have a birth without the needed
 power.
 When we go to Satguru for Satsang, Spiritual energy
 is obtained by three methods:-
-By Auspicious Sight: Dharsan; firstly, when the Guru
-looks at us then it sends energy in to us. That’s why when
-we go to Guru we pray them to keep auspicious sight on
-us. Gadhari had made the Duryodhan's body frigid with
-her power of sight only. Means sight can transmit the
-Spiritual powers.
+**By Auspicious Sight:** Dharsan; firstly, when the Guru looks at us then it sends energy in to us. That’s why when we go to Guru we pray them to keep auspicious sight on us. Gadhari had made the Duryodhan's body frigid with her power of sight only. Means sight can transmit the Spiritual powers.
 
+**By Touch of Guru's Holy feet:** Sparshan; this energy could possessed by the touch. This can be done by touching anywhere but touching feet has somehow become a rule.
 
-By Touch of Guru's Holy feet: Sparshan ; this energy
-could possessed by the touch. This can be done by
-touching anywhere but touching feet has somehow
-become a rule.
-By Sound: Sambhasan; then the other method to reach
-these rays towards us is sound vibrations. Hence, the
-Satsang has a lot of importance.
-Dhanya Ghadi Jab Ho Satsanga.
+**By Sound:** Sambhasan; then the other method to reach these rays towards us is sound vibrations. Hence, the Satsang has a lot of importance. Dhanya Ghadi Jab Ho Satsanga.
 
+## What is heaven
 ### What is heaven?
-It is the place within the 3 Lokas of Niranjan
-where man goes for a brief period to reap the fruit of his
-Karmas (deeds). There are three kinds of classes in
-heaven— high, medium and low. There are pleasures and
-joys in the lower class but in the medium one the amount
-of pleasures and joys is greater than that in the lower one.
-However, the upper class is the best of all. However,
-There is nothing like soul realization to be found in any
-class there. There one gets a body that, unlike the physical
-body, is of a subtle form. Man likes to go to heaven but he
-doesn’t think as to why the Gods desire to attain the
-human body. It clearly shows there are some kind of
-deficiencies found in the heaven.
+It is the place within the 3 Lokas of Niranjan where man goes for a brief period to reap the fruit of his Karmas (deeds). There are three kinds of classes in heaven— high, medium and low. There are pleasures and joys in the lower class but in the medium one the amount of pleasures and joys is greater than that in the lower one. However, the upper class is the best of all. However, There is nothing like soul realization to be found in any class there. There one gets a body that, unlike the physical body, is of a subtle form. Man likes to go to heaven but he doesn’t think as to why the Gods desire to attain the human body. It clearly shows there are some kind of deficiencies found in the heaven.
 Once Durvasa Rishi, on being pleased with Mridugal
 Rishi, blessed him with a place in heaven. The messenger
 came to him in a plane and requested him to accompany
@@ -2563,94 +2072,29 @@ have to return to the world repeatedly. You can go back.”
 In fact, the heaven as well is a sort of deception. It
 can in no way prove helpful in attaining Soul realization.
 
-###
-located?
-Everyone is in possession of it. Often when we
-go to the enlightened Souls, we ask them to see with their
-Divya Darishti whether they will find success in the work
-in hand. Have the sages to see with some special
-spectacles? Certainly not. We want them to do so through
-their inner eyes (Antakarna or concentration).
-You as well are in possession of this Darishti. With
-its help you can have a vision of God. Some say, it is
-present in the Agya Chakra; some say it is present in the
-3rd til (place in- between the eyes) while others speak of
-
-
-its presence at some other points. In fact, this Divya
-Darishti is present in our Surti. That is why we talk of
-Surti Yog. This Divya Darishti will open only when our
-concentration gets firmly fixed. It will then help us attain
-Soul realization. Nevertheless, the Mind, remaining
-hidden, prevents us from fixing our concentration. It does
-so by reminding us of some worldly things. The second
-part of this Surti (called as Nirti ) is within our body. The
-two have to be united to make the Divya Darishti open.
-That is to say, the Surti has to be drawn from the outer
-world and the Nirti has to be brought to its proper position
-so that the two can be united.
-Just as one loses the power to see when the Cataract
-(Motiabind) appears in the eyes, in the same manner, the
-devotee loses the power to open the Divya Darishti when
-the Mind casts a veil over it. Even the real face of Mind
-can be seen when the Divya Darishti gets opened.
+## Where does the Divya Darishti located
+### Where does the Divya Darishti (inner eyes) located?
+Everyone is in possession of it. Often when we go to the enlightened Souls, we ask them to see with their Divya Darishti whether they will find success in the work in hand. Have the sages to see with some special spectacles? Certainly not. We want them to do so through their inner eyes (Antakarna or concentration).
+You as well are in possession of this Darishti. With its help you can have a vision of God. Some say, it is present in the Agya Chakra; some say it is present in the 3rd til (place in- between the eyes) while others speak of its presence at some other points. In fact, this Divya Darishti is present in our Surti. That is why we talk of Surti Yog. This Divya Darishti will open only when our concentration gets firmly fixed. It will then help us attain Soul realization. Nevertheless, the Mind, remaining hidden, prevents us from fixing our concentration. It does so by reminding us of some worldly things. The second part of this Surti (called as Nirti ) is within our body. The two have to be united to make the Divya Darishti open. That is to say, the Surti has to be drawn from the outer world and the Nirti has to be brought to its proper position so that the two can be united.
+Just as one loses the power to see when the Cataract (Motiabind) appears in the eyes, in the same manner, the devotee loses the power to open the Divya Darishti when the Mind casts a veil over it. Even the real face of Mind can be seen when the Divya Darishti gets opened.
+```
 Sabb ki gathri lal hai...
+```
 Every human being has great hidden miraculous powers.
 
-### Are the heaven and the hell the creation of
-Niranjan?
+## heaven and the hell the creation of Niranjan
+### Are the heaven and the hell the creation of Niranjan?
 Yes, Niranjan is the creator as well as the admin-
 istrator of the heavens and the hell.
 The ever blissful Soul is given the small, unreal and
 short lived pleasures in heaven simply to make it forget
 the real and permanent pleasures of Sat Lok and to keep it
 entangled in the short lived worldly pleasures.
-On the other hand, there are Sapat kumbhi Naraks
-(hells of 7 kinds) where the Jivas, as per their evil deeds,
-are given such tortures as no civilized person of the world
-can even dream of. Sometimes they are put in the big
-vessels full of hot oil; sometimes they are tortured by
-touching them with hot iron; sometimes they are thrown in
-pits containing dirt and filth; sometimes they are made to
-drink the boiling oil while at other times they are made to
+On the other hand, there are Sapat kumbhi Naraks (hells of 7 kinds) where the Jivas, as per their evil deeds, are given such tortures as no civilized person of the world can even dream of. Sometimes they are put in the big vessels full of hot oil; sometimes they are tortured by touching them with hot iron; sometimes they are thrown in pits containing dirt and filth; sometimes they are made to drink the boiling oil while at other times they are made to walk over thorns. Just think! Would you like to give your children such like punishment even if they have committed serious nature of crimes. What to talk of one’s own children, none would like to give such tortures even to the children of others. How can Param Purush ever think of doing so to the Jivas who are His own parts? It is Kaal Niranjan alone who, by his nature, seeks pleasure in doing such acts.
 
-
-walk over thorns. Just think! Would you like to give your
-children such like punishment even if they have
-committed serious nature of crimes. What to talk of one’s
-own children, none would like to give such tortures even
-to the children of others. How can Param Purush ever
-think of doing so to the Jivas who are His own parts? It is
-Kaal Niranjan alone who, by his nature, seeks pleasure in
-doing such acts.
-
+## What is Sahaj Samadhi
 ### What is Sahaj Samadhi?
-Sahaj Samadhi means an easy way of medita-
-tion. There is no difficulty in this practice. Yog is difficult
-to perform. To understand the Sahaj Samadhi there is need
-to understand as to what the Yogis do. At first, they
-observe a fast. Then they cleanse the 6 Chakras in the
-body by removing the filth from there. After this they sit
-in a tub of water and cleanse the anal internal passage by
-purging with water. Then they cleanse the penis with milk.
-They do so by taking milk in and out. Then they insert a
-cloth with length equal to 9 fingers into it the throat and
-clean the heart chakra. Then they take a Dhoti with length
-equal to 7 hands and take it in and out through the mouth.
-Then they wash it with water. They repeat this activity
-thrice it cleanses their intestines, throat, heart and Anhad
-Chakra. After this they draw in water through the current
-Swar (flowing breath)—Ida or Pingla, remove it through
-the other and thereby cleanse the Agya Chakra. After
-doing all this, they Sit on a piece of cloth (Asan) and
-drawing the breath upward, open the Sushumna. In the
-vital force (pranas) resides the Soul. They stop all physical
-of activity. This is really a very difficult job. How many
-people will be able to practice it? No doubt, many people
-won’t be able to do it. After remaining hungry for two
-days, this Kriya (activity ) has to be performed for one day
-and then the meditation has to be done.
-
+Sahaj Samadhi means an easy way of meditation. There is no difficulty in this practice. Yog is difficult to perform. To understand the Sahaj Samadhi there is need to understand as to what the Yogis do. At first, they observe a fast. Then they cleanse the 6 Chakras in the body by removing the filth from there. After this they sit in a tub of water and cleanse the anal internal passage by purging with water. Then they cleanse the penis with milk. They do so by taking milk in and out. Then they insert a cloth with length equal to 9 fingers into it the throat and clean the heart chakra. Then they take a Dhoti with length equal to 7 hands and take it in and out through the mouth. Then they wash it with water. They repeat this activity thrice it cleanses their intestines, throat, heart and Anhad Chakra. After this they draw in water through the current Swar (flowing breath)—Ida or Pingla, remove it through the other and thereby cleanse the Agya Chakra. After doing all this, they Sit on a piece of cloth (Asan) and drawing the breath upward, open the Sushumna. In the vital force (pranas) resides the Soul. They stop all physical of activity. This is really a very difficult job. How many people will be able to practice it? No doubt, many people won’t be able to do it. After remaining hungry for two days, this Kriya (activity ) has to be performed for one day and then the meditation has to be done.
 
 In the Sahaj Yog I am talking about, the recitation
 has to be done through every breath. Such recitation will
@@ -2659,125 +2103,72 @@ moving in the reverse direction. The moving up of the
 breath will enable one enter in the state of Samadhi
 (Concentration). This is called as the Sahaj Samadhi.
 
-### Isn’t the act of leaving one** 's Guru and
-seeking the shelter of some other is like an act of
-**leaving one’s husband** and seeking some other?
-This question arises when you shun your Satguru
-and get entangled in worshiping others. In fact, shunning
-the Guru who has entangled you in the Kaal related
-worship and seeking the shelter of Satguru who blesses
-you with Naam related to Param Purush, is just like
-leaving the unreal husband and returning back to the real
-husband. It can in no case be considered as an act of
-seeking the shelter of some other husband. Here you have
-to ponder whether you are worshipping your own husband
-or improper one. Sahib Kabir has talked about worship
-that is entirely different from that of Sagun or Nirgun. The
-kinds of worship prevalent in the world are all related to
-Kaal Purush. They are, so to say, just like the worship of
-unreal husband. The real husband of Soul is none else but
-Param Purush whose part it is. That is to say, the worldly
-people are not worshiping their real husband. They want
-to remain under the shelter of such Gurus who do not
-posses the power to enable them meet their real husband
-(loved one). That is why, under the misconceptions
-created in their minds, they think the seeking of shelter of
-some real Satguru by leaving their Guru is just like an act
-of shunning their husband. Strange thing to note is that the
-people don’t know as to who their real husband is.
+## act-of-leaving-one-guru-seeking-another
+### Isn’t the act of leaving one's Guru and seeking the shelter of some other is like an act of leaving one’s husband and seeking some other?
+This question arises when you shun your Satguru and get entangled in worshiping others. In fact, shunning the Guru who has entangled you in the Kaal related worship and seeking the shelter of Satguru who blesses you with Naam related to Param Purush, is just like leaving the unreal husband and returning back to the real husband. It can in no case be considered as an act of seeking the shelter of some other husband. Here you have to ponder whether you are worshipping your own husband or improper one. Sahib Kabir has talked about worship that is entirely different from that of Sagun or Nirgun. The kinds of worship prevalent in the world are all related to Kaal Purush. They are, so to say, just like the worship of unreal husband. The real husband of Soul is none else but Param Purush whose part it is. That is to say, the worldly people are not worshiping their real husband. They want to remain under the shelter of such Gurus who do not posses the power to enable them meet their real husband (loved one). That is why, under the misconceptions created in their minds, they think the seeking of shelter of some real Satguru by leaving their Guru is just like an act of shunning their husband. Strange thing to note is that the people don’t know as to who their real husband is.
 Dadu dyal Ji says _
+```
 Purush Hamara Ek Hai, Hum Nari Bahu Ung
+```
 The husband of all of us is Param Purush alone.
-
-
 Sahib Kabir says—
+```
 Jabb Tak Guru Miley Nehin Sancha,
 Tabb Tak Guru Karo Dus Pancha
+```
 You can seek the shelter of more than one Guru by
 the time you succeed in finding the real Guru (Satguru).
 
-### Sant Satguru is also a human being. As
-such, how can he be expected to come and take the
-Soul of the disciple to Amarlok after the discipal
-departs from the world?
-Those who take the Sant Satguru as an ordinary
-human being, lack intellect. The Satguru you are related
-with, occupies the (8th) Ashtam Chakra. He is not a body.
-His visible body is only a sort of veil. This is because the
-entire abode of Niranjan will disappear if there were no
-such a veil. Then all the Jivas will reach Amarlok. That
-appearance is so much attractive that all will get absorbed
-into it if that veil is lifted.
-Nevertheless, Niranjan’s worlds are not to be made
-desolate. All that is needed is to make the Beings
-understand in a well planned manner and that too without
-lifting the veil. He who understands, moves ahead on his
-path to Sat Lok. The Satguru makes you understand
-through the medium of this very body. As such, you
-should fix your concentration at his very appearance of
-him without trying to point out any distinction between
-Param Purush and the Satguru. Remember! At the last
-moment he will come to take you in the bodiless form.
+## is-Sant-Satguru-is-ordinary-human-being
+### Sant Satguru is also a human being. As such, how can he be expected to come and take the Soul of the disciple to Amarlok after the disciple departs from the world?
+Those who take the Sant Satguru as an ordinary human being, lack intellect. The Satguru you are related with, occupies the (8th) Ashtam Chakra. He is not a body. His visible body is only a sort of veil. This is because the entire abode of Niranjan will disappear if there were no such a veil. Then all the Jivas will reach Amarlok. That appearance is so much attractive that all will get absorbed into it if that veil is lifted.
+Nevertheless, Niranjan’s worlds are not to be made desolate. All that is needed is to make the Beings understand in a well planned manner and that too without lifting the veil. He who understands, moves ahead on his path to Sat Lok. The Satguru makes you understand through the medium of this very body. As such, you should fix your concentration at his very appearance of him without trying to point out any distinction between Param Purush and the Satguru. Remember! At the last moment he will come to take you in the bodiless form.
 
-### Can’t we take the incarnations in the**
-world as the incarnations of God Himself?
+## can-we-take-incarnations-of-god
+### Can’t we take the incarnations in the world as the incarnations of God Himself?
 All that are nothing but illusions They were the
 incarnations of Niranjan. He does all this to maintain his
 glory in his 3 Lokas.
 The worldly people say He incarnates in the world
 but Sahib Kabir says—
 
-
+```text
 Dashrath Kul Autar Nehin Aaya,
 Nehin Lanka Ke Rav Sataya
 Prithvi Raman Dhaman Nehin Keriya,
 Paithi Patal Na Bali Chhaliya
 Ei Sub Kam Sahib Ke Nahin,
 Jhut Kahey Sansara.
-That Param Purush didn’t incarnate Himself in the
-house of Dashrath. Neither He killed Ravan, the ruler of
-Lanka nor He cheated the king Bali even. All such acts
-were performed by Niranjan himself.
+```
+That Param Purush didn’t incarnate Himself in the house of Dashrath. Neither He killed Ravan, the ruler of Lanka nor He cheated the king Bali even. All such acts were performed by Niranjan himself.
+```text
 Janam Maran Se Rahit Hai, Mera Sahib Soye
 Balihari Us Peev Ki, Jin Sirja Sub Koye
+```
 That Sahib (Param Purush) neither gets created nor
 gets destroyed. I bow before that Sahib who created
 everything.
 Only some rare assayer can assay Him. That Param
 Purush alone is the real and true well wisher of the Soul.
-Think over the words. Sahib Kabir says that our real
-beloved one doesn’t visit the world. That is to say, he
-doesn’t take birth from the womb of mother. Neither He
-has any parents nor He has been created by anyone. He is
-neither a sage, worshiper or some Yogi nor does He
-perform any rites and rituals like other worldly people. He
-is far distinguished from the 4 Ashrams as well. Neither
-He becomes a child nor does He grow young or old. None
-can say anything about His age. He is beyond the
-Tridevas, Sohang, Nirakar and the like. He is even
-different from the Maya and Brahm.
-He is different from Jyoti Niranjan, Aum, the earth,
-the Sun, the Stars, elements and other such like things. He
-is present in all beings but remains invisible. Only the
-Naam blessed by the Satguru can reveal His identity.
+Think over the words. Sahib Kabir says that our real beloved one doesn’t visit the world. That is to say, he doesn’t take birth from the womb of mother. Neither He has any parents nor He has been created by anyone. He is neither a sage, worshiper or some Yogi nor does He perform any rites and rituals like other worldly people. He is far distinguished from the 4 Ashrams as well. Neither He becomes a child nor does He grow young or old. None can say anything about His age. He is beyond the Tridevas, Sohang, Nirakar and the like. He is even different from the Maya and Brahm.
+He is different from Jyoti Niranjan, Aum, the earth, the Sun, the Stars, elements and other such like things. He is present in all beings but remains invisible. Only the Naam blessed by the Satguru can reveal His identity.
 
-### If this universe is dream like, then the
-stars, the moon and the like must be the same. Then
-
-
-the Guru too must be dream. Then what should be
-taken as the truth?
-This world is like a dream. This is because noth-
-ing stays here for ever. These physical eyes are unreal. As
+## if-universe-is-dream-then-guru-is-dream-or-truth
+### If this universe is dream like, then the stars, the moon and the like must be the same. Then the Guru too must be dream. Then what should be taken as the truth?
+This world is like a dream. This is because nothing stays here for ever. These physical eyes are unreal. As
 such, all that you see with them is also unreal. This dream
 is a very long one. Sahib Kabir says —
+```text
 Chander Surya Bhas Swapan, Panch Mein Prapanch Swapan
 Swarg Au Narak Beech Basey Sau Swapan Roop Hain
+```
 The Sun, the Moon, the Heaven and the Hell are
 nothing but a farce. In fact, the state in which you are
 sitting is also a delusion.
+```text
 Auhang Au Sauhang Swapan, Pind Aur Brahmand Swapan
 Atma Permatma Swapan, Roop So Aroop Hai
+```
 Even the Soul and God are dream like. This is
 because after the absorption of the Mind in the Hansa, the
 latter has been called as Atma.
@@ -2786,26 +2177,22 @@ Even God is a dream like because he is Niranjan, the ruler
 of the illusionary 3 worlds. However, the Satguru is not
 dream, because his integrated awareness is accessed in
 Surti. Sahib Kabir says—
+```text
 Kahat Kabir Sun Gorakh Bachan Mum
 Swapan Se Parey Satya Satya Roop Bhoop Hai
 Soyi Satya Nam Satya Lok Beech Vasa Karey
 Nehin Kahoon Aavey Nehin Javey Satya Roop Hai
+```
 That Satya Naam itself is the only truth. Its abode is
 eternal, Amarlok that never perishes. It is beyond the limit
 of deluding Mind. Therefore it the truth and is real.
+
 ****************************************************************
 
 
-```
-3 The Religious Scriptures-Veda do
-```
-not know the secret related to My
-
-World
-In the holy Quran we find a mention of ‘Bechuna
-Khuda’. Bechuna means Nirakar. Isa Masih as well has
-called God as his heavenly father and himself as his only
-son. Heavenly God as well means Nirakar.
+## Religious Scriptures-Veda do not know the secret
+### The Religious Scriptures-Veda do not know the secret related to My World
+In the holy Quran we find a mention of ‘Bechuna Khuda’. Bechuna means Nirakar. Isa Masih as well has called God as his heavenly father and himself as his only son. Heavenly God as well means Nirakar.
 The Vedas talk about the Nirakar ( formless ) God.
 All our religious scriptures are speaking about the
 Formless God alone. However, you should know that this
@@ -2813,34 +2200,36 @@ Nirakar whom the worldly people call as God, is the
 creator of 84 Lakh Yonis (Kind of Beings). The truth is
 that the Surti that provides the needed energy to create
 consciousness in the Yonis is something different.
-
+```text
 Karam Aur Bharam Sansaar Sab Karat Hai,
 Peev Ki Parakh Koi Sant Jaaney.
-Sahib Ji says that the whole world is busy in doing
-karma and is wandering in confusion in search of Supreme
-Lord. Whereas, only a true living Sant has the true
-realization of Supreme Lord (Sahib) and completely
-knows about His true presence, appearance and existence.
+```
+Sahib Ji says that the whole world is busy in doing karma and is wandering in confusion in search of Supreme Lord. Whereas, only a true living Sant has the true realization of Supreme Lord (Sahib) and completely knows about His true presence, appearance and existence.
 
 Sahib Kabir has described this Nirakar creator as—
+```text
 Munn hi Nirakar, Niranjan janiye
 Munn itself is the Nirakar Niranjan
+```
 All take ultimate Salvation as the attainment of Nira-
 existence of Nirakar but it also throws light on that which
 lies beyond formless. Sahib Kabir has talked about that
 which is rare and different from the Nirakar, the Sagun
 the Nirgun mode of worship and the related 5 Mudras.
-_Duniya Jisko ‘Paramatma’ Maaney,
-Sohi ‘Kaal’ Koi Bheid Na Jaaney._
-
+```text
+Duniya Jisko ‘Paramatma’ Maaney,
+Sohi ‘Kaal’ Koi Bheid Na Jaaney.
+```
 
 Sahib Ji says that the ‘Power’ who is ruling over the
 universe, to whom the whole world considers and worship
 as ‘God’; is no one else but ‘Kaal Purush’ (God of
 Death/Mind). This secret is unknown to the whole of
 mankind.
+```text
 Is Ke Aage Bheid Hamara, Janey Ga Koyi Jananhara
 Kahey Kabir Janey Ga Soi, Ja Per Kripa Satguru Ki Hoi
+```
 Sahib Kabir says that the secret related to him lies
 far beyond this and only some disciple, who has with him
 the grace of a Satguru, can know of it.
@@ -2848,8 +2237,10 @@ The Sants have given the universe the secret related
 to Satya Lok (True World), path of real salvation and the
 11th Dwara (State) that lies beyond the 10th one (Door of
 Inner Vision to Cosmos).
+```text
 Bhakti-Bhakti Sab Jagat Bakhana,
 Bhakti Bheid Koi Virla Jaana.
+```
 The whole world is worshiping God in their own
 ways. But, only the rare being realises about the real
 secret behind the true worship of Supreme Lord
@@ -2858,23 +2249,26 @@ real worship after making them understand clearly the
 difference between the bodily(Spoken and written) Naam
 related to the Kaal Purush and the Sar Naam (Soundless
 Sound) related to Param Purush.
+```
 Kag Palat Hansa Ker Deena,
 Aisa Purush Nam Main Deena
 Akah Nam Likha Na Jayi, Pada Na Jayi,
 Bin Satguru Koyi Nahi Payi
+```
 Sahib Kabir says that he blesses the devotees with
 the rare Alive Naam related to Param Purush, that can
 neither be read nor reduced to writing. Moreover, none but
 a Satguru has the power to bless the devotees with that
 Sajeevan Naam.
+```text
 Sada Anand Hot Hai Va Ghar
+```
 Amarlok is eternally blissful
 ***********
 
 
-```
-```
-## 4. I visit this universe in every Yuga
+## sant-kabir-visit-this-universe-in-every-yuga
+### I visit this universe in every Yuga
 
 Those who don't know me, often on hearing about
 me from my critics say that Ranjdi wala says he is all in
@@ -2882,41 +2276,19 @@ all. Though I have never said so, yet there is some logic in
 what they say. If you think in a rational way, you will find
 that I am making my devotees follow me. That is why
 others feel so.
-A certain individual phoned me saying that he
-wanted to speak to Madhu Param Hans Ji. I asked him to
-say what he wanted. He said that he wanted to talk to
-Madhu Param Hans Ji. This is because normally it is the
-PAs’ who first attend the phone. As such, he thought some
-PA might have attended it. I said that I was Madhu Param
-Hans. Still he expressed some doubt. His tone was not a
-pleasant one. At first, I thought of disconnecting the call,
-as I didn’t like to talk to such a bad mannered man. Then I
-thought perhaps it may be his habit. I asked him to spell
-his doubt. He said that I called myself as the incarnation
-of Sahib Kabir. What was the proof. I said that I never
-said so. He said that my disciples said so. I said that I take
-him also like Kabir. Kabir is the name of the flawless
-awakened force that is present in all.
+A certain individual phoned me saying that he wanted to speak to Madhu Param Hans Ji. I asked him to say what he wanted. He said that he wanted to talk to Madhu Param Hans Ji. This is because normally it is the PAs’ who first attend the phone. As such, he thought some PA might have attended it. I said that I was Madhu Param Hans. Still he expressed some doubt. His tone was not a pleasant one. At first, I thought of disconnecting the call, as I didn’t like to talk to such a bad mannered man. Then I thought perhaps it may be his habit. I asked him to spell his doubt. He said that I called myself as the incarnation of Sahib Kabir. What was the proof. I said that I never said so. He said that my disciples said so. I said that I take him also like Kabir. Kabir is the name of the flawless awakened force that is present in all.
+```text
 Kakka Kewal Naam Hai, Babba Baran Sharir.
 R-Ra Sabb Mein Rum Raha, Taka Naam Kabir.
-According to a holy saint, Kabir is another Name of
-the awareness-chetan shakti present in every Individual.
-Kabir means that which has no material body. He
-said that I also say that the thing I possess is not to be
-found anywhere else in the universe. I said that he was
-listening to all that others were speaking. I talk about a
-pure thing. Our identity is different from that of others.
-Had I said I give the devotees a Power at the time of
-blessing them with Naam, he wouldn’t have understood it.
+```
+According to a holy saint, Kabir is another Name of the awareness-chetan shakti present in every Individual. Kabir means that which has no material body. He said that I also say that the thing I possess is not to be found anywhere else in the universe. I said that he was listening to all that others were speaking. I talk about a pure thing. Our identity is different from that of others. Had I said I give the devotees a Power at the time of blessing them with Naam, he wouldn’t have understood it.
 
-
-He asked many questions. Then he attended a
-Satsang at Jalandhar. I was speaking about this very topic.
-He stood up and said that he was that very fellow. Then he
-got blessed with Naam.
+He asked many questions. Then he attended a Satsang at Jalandhar. I was speaking about this very topic. He stood up and said that he was that very fellow. Then he got blessed with Naam.
 Sahib Kabir had descended on the earth to make the
 Humanity understand the glory of Naam.
+```text
 Ni Aksher Te Karai Nibera, Kahe Kabir Soyi Jann Mera
+```
 Sahib Kabir says that he takes such a individual who
 are blessed with the Sar Naam, as his own.
 Shabad Bheid Janey Jo Koyi, Sar Shabad Mein Rahe Samoyi
@@ -2928,18 +2300,21 @@ Sahib Kabir told Dharam Dass about the 13 Yugas
 universe even before the appearance of Satya Yug. These
 Yugas are _
 
-1. Adasur Yug 2. Balbhaddar Yug. 3. Doonder Yug
-4. Purvan Yug 5. Anuman Yug 6. Dheeryamal Yug 7.
-   Taran Yug 8. Akhil Yug 9. Vishva Yug 10. Akshya Taran
-   Yug 11. Nandi Yug 12. Hindol Yug 13. Kankvat Yug.
-   To satisfy the great curiosity of Dharam Dass, Sahib
-   Kabir told him about the 4 Yugas related to Kalap Yugam.
-   He said that Niranjan again and again created the universe
-   and killed and ate the Beings after giving them much
-   tortures. The pitiable cries of the Beings reached Param
-   Purush Who sent him to the universe to bring the Beings
-   to Amarlok after blessing them with the Sar Naam.
-1. Sat Yug;- In Satya Yug, Geyani Ji (Kabir Sahib)
+1. Adasur Yug 
+2. Balbhaddar Yug.
+3. Doonder Yug
+4. Purvan Yug 
+5. Anuman Yug 
+6. Dheeryamal Yug 
+7. Taran Yug 
+8. Akhil Yug 
+9. Vishva Yug 
+10. Akshya Taran Yug 
+11. Nandi Yug 
+12. Hindol Yug 
+13. Kankvat Yug.
+To satisfy the great curiosity of Dharam Dass, Sahib Kabir told him about the 4 Yugas related to Kalap Yugam. He said that Niranjan again and again created the universe and killed and ate the Beings after giving them much tortures. The pitiable cries of the Beings reached Param Purush Who sent him to the universe to bring the Beings to Amarlok after blessing them with the Sar Naam.
+1. **Sat Yug**;- In Satya Yug, Geyani Ji (Kabir Sahib)
    came to the universe with Satya Sukrit as name. The
    period of Satya Yug was 17 Lakh years. Here the people
    had a height of 21 hands. In this Yug, Chiter-rekha, the
@@ -2953,14 +2328,14 @@ one to reach there was a milk maid, Viksi by name. She
 was from Mathurapuri. These Hansas on their turn, helped
 9 Lakh other Hansas reach Amarlok.
 
-2. Treta Yug:- In this Yug, Geyani Ji came to the
+2. **Treta Yug:-** In this Yug, Geyani Ji came to the
    universe as Muninder Muni. He described 12 Lakh 96
    thousand years as the period of this Yug. Here the people
    had a height of 14 hands. In this Yug, Lakshman Ji and
    Madhokar of Ayodhya, Mandodri, the wife of Ravan,
    Guru Vashishath and Durvasa Muni were blessed with
    Naam and reached Sat Lok.
-3. Dwaper Yug:- In this Yug, he came to the
+3. **Dwaper Yug:**- In this Yug, he came to the
    universe as Karunamay. The period of this Yug was 6
    Lakh 64 thousand years. The people had a height of seven
    hands. Indumati, the wife of king Chander Vijay, king
@@ -2973,115 +2348,41 @@ was from Mathurapuri. These Hansas on their turn, helped
    Amarlok. All of them came to the universe as Gurus
    and floating the true Panth helped 52 Lakh Jivas attain
    Salvation.
-4. Kali Yug:- In this Yug, Geyani Ji came to the uni-
-   verse as Sahib Kabir to create awakening among the Jivas.
-   The period of this Yug is 4 Lakh 32 thousand years. The
-   average age of man is 100 years and his height is at the
-   most three and a half hands. Here the age is not fixed.
-   People pay less attention to worship. All sorts of strange
-   things happen here. The sages are seen envying other
-   Sages. That is why they remain entangled in the 84 Lakh
-   Yonis. Only some rare devotee is able to recognize the
-   truth. All others will envy the devotee who gets blessed
-   with the true Naam. Many unreal Sages in the guise of
-   Sadhus will cheat and mislead the devotees in the name of
+4. **Kali Yug:**- In this Yug, Geyani Ji came to the uni- verse as Sahib Kabir to create awakening among the Jivas. The period of this Yug is 4 Lakh 32 thousand years. The average age of man is 100 years and his height is at the most three and a half hands. Here the age is not fixed. People pay less attention to worship. All sorts of strange things happen here. The sages are seen envying other Sages. That is why they remain entangled in the 84 Lakh Yonis. Only some rare devotee is able to recognize the truth. All others will envy the devotee who gets blessed with the true Naam. Many unreal Sages in the guise of Sadhus will cheat and mislead the devotees in the name of religion. Calling themselves as Sants, the Sages will beg from others and will indulge in lustful activities. Sahib Kabir cleared all the misconceptions of Dharam Dass related to truth. Others whose misconceptions were removed, were—
 
-
-religion. Calling themselves as Sants, the Sages will beg
-from others and will indulge in lustful activities.
-Sahib Kabir cleared all the misconceptions of
-Dharam Dass related to truth. Others whose
-misconceptions were removed, were—
-
-1. Guru Gorakh Nath 2. Shah Balakh Bukhari, a
-   great scholar of Arbi language 3. Swami Rama Nand, his
-   guru 4. Sikander Lodhi, the disciple of Sheikh Takki 5.
-   Apart from it, he crushed the ego of Sheikh Takki by
-   allowing him to have his real vision. 6. Blessed the king
-   Veer Sing Baghel, the ruler of Kashi 7. Blessed Nawab
-   Bijli Khan of Awadh 8. Enabled the King Kanak Sing
-   along with his 16 wives reach Amarlok. 9. Helped the
-   King of Bhopal along with his 11 wives attain Sat Lok.
-10. Helped Ratnabai, a sweet seller attain Sat Lok. 11.
-    Enabled Mohammad Sahib cross 7 skies. 12. The washer
-    man Ali Dass along with 7 other Jivas also got blessed
-    with Naam and reached Sat Lok. 13. Revealed the hidden
-    secret to Nanak Dev Ji. 14. Revealing the significance of
-    Naam to Damodar Dass, helped him attain salvation.
-    Through them he helped 5 Lakh Jivas attain salvation.
-    In Dwaper Yug, Before the incarnation of Krishn Ji,
-    Vishnu Ji created 16 thousands milk maids. All of them,
-    decorating their bodies, were singing in the glory of Hari.
-    Krishn Ji took birth in Gokul in the house of Vasdev. King
-    Kansa asked Kagasur to damage the eyes of his enemy,
-    Krishn Ji. Kagasur reached the place where Krishn Ji was
-    busy playing with his small friends. Seeing the devil,
-    Krishn Ji simply embraced him and he died on the spot.
-    When Pootna, the wife of Kagasur came to kill him, he
-    took in all the poison attached to her breasts and killed
-    her. Likewise, he killed Bakasur within a moment. He
-    didn’t leave any devil alive. He lifted the entire mountain
-    on his finger when the God Inder continued to cause
-    rainfall for 7 days. Inder Dev begged pardon for his
-    wrong act. One day he was busy grazing the cows and
-
-
-calves on the bank of river Kalinadi. The animals felt
-thirsty and went to the stream to quench their thirst. The
-bodies of all of them became affected with poison. Krishn
-Ji was astonished to see this and he himself went to drink
-water. His body turned grayish black. He descended into
-the stream and catching hold of the python, sent it to Patal.
-A disciple, who is in the shelter of a Satguru, can
-understand the reality behind such actions of Krishn Ji.
-He killed Shishu Pal. So to say, all the miraculous
-activities of Hari in all his incarnations appear related to
-the repeated births and deaths and the desire to take
-revenge. Man, taking all this as a glimpse of the
-superpower of Hari, takes him as the liberator.
-Remaining entangled in the Mayajal of these
-miraculous things, man fails to attain the knowledge
-related to Param Purush of the 4th Loka. It is only the
-Satguru who gives knowledge about Amarlok, the real
-abode of Hansa. After attaining real salvation nothing like
-taking revenge, performing of Karmas and the like
-remains to be done. The repeated cycle of births and
-deaths, the deeds performed by the incarnations and the
-like are related to Nirakar Niranjan, the Lord of the 3
-Lokas.
+1. Guru Gorakh Nath 
+2. Shah Balakh Bukhari, a great scholar of Arbi language 
+3. Swami Rama Nand, his guru 
+4. Sikander Lodhi, the disciple of Sheikh Takki 
+5. Apart from it, he crushed the ego of Sheikh Takki by allowing him to have his real vision. 
+6. Blessed the king Veer Sing Baghel, the ruler of Kashi 
+7. Blessed Nawab Bijli Khan of Awadh 
+8. Enabled the King Kanak Sing along with his 16 wives reach Amarlok. 
+9. Helped the King of Bhopal along with his 11 wives attain Sat Lok.
+10. Helped Ratnabai, a sweet seller attain Sat Lok. 
+11. Enabled Mohammad Sahib cross 7 skies. 
+12. The washer man Ali Dass along with 7 other Jivas also got blessed with Naam and reached Sat Lok. 
+13. Revealed the hidden secret to Nanak Dev Ji. 
+14. Revealing the significance of Naam to Damodar Dass, helped him attain salvation.
+Through them he helped 5 Lakh Jivas attain salvation. In Dwaper Yug, Before the incarnation of Krishn Ji, Vishnu Ji created 16 thousands milk maids. All of them, decorating their bodies, were singing in the glory of Hari. Krishn Ji took birth in Gokul in the house of Vasdev. King Kansa asked Kagasur to damage the eyes of his enemy, Krishn Ji. Kagasur reached the place where Krishn Ji was busy playing with his small friends. Seeing the devil, Krishn Ji simply embraced him and he died on the spot. When Pootna, the wife of Kagasur came to kill him, he took in all the poison attached to her breasts and killed her. Likewise, he killed Bakasur within a moment. He didn’t leave any devil alive. He lifted the entire mountain on his finger when the God Inder continued to cause rainfall for 7 days. Inder Dev begged pardon for his wrong act. One day he was busy grazing the cows and calves on the bank of river Kalinadi. The animals felt thirsty and went to the stream to quench their thirst. The bodies of all of them became affected with poison. Krishn Ji was astonished to see this and he himself went to drink water. His body turned grayish black. He descended into the stream and catching hold of the python, sent it to Patal. A disciple, who is in the shelter of a Satguru, can understand the reality behind such actions of Krishn Ji.
+He killed Shishu Pal. So to say, all the miraculous activities of Hari in all his incarnations appear related to the repeated births and deaths and the desire to take revenge. Man, taking all this as a glimpse of the superpower of Hari, takes him as the liberator.
+Remaining entangled in the Mayajal of these miraculous things, man fails to attain the knowledge related to Param Purush of the 4th Loka. It is only the Satguru who gives knowledge about Amarlok, the real abode of Hansa. After attaining real salvation nothing like taking revenge, performing of Karmas and the like remains to be done. The repeated cycle of births and deaths, the deeds performed by the incarnations and the like are related to Nirakar Niranjan, the Lord of the 3 Lokas.
+```text
 Kaal Saban Ko Grasyo, Vachan Kahyo Samjhaye
 Kahain Kabir Main Ka Karun, Dekh Nehin Patiyae
+```
 Sahib Kabir says that Kaal is devouring all but he
 feels helpless as the Jivas don’t try to understand all this
 even after watching all this with their own eyes..
 Sahib Kabir has been coming to the universe in the
-guise of a Satguru since Yugas together to make the jivas
-understand the Mayaic net of Niranjan and the miseries
-one has to suffer here. He feels sad to see whole of the
-world engrossed in the acts of hypocrisy and dreams of
-attaining salvation through the unreal modes of worship
-instead of following the real one.
+guise of a Satguru since Yugas together to make the jivas understand the Mayaic net of Niranjan and the miseries one has to suffer here. He feels sad to see whole of the world engrossed in the acts of hypocrisy and dreams of attaining salvation through the unreal modes of worship instead of following the real one.
 
-
-Krishn Ji, with the help of the Pandvas, made all the
-armies of the Kaurvas and the Pandvas suffer death. Even
-the great donor like Karun, Ganga Puttar Bhisham and the
-Guru Daronacharya were killed. He caused all this to
-happen by creating misconceptions and misunderstandings
-in the minds of others.
-Only the Pandvas survived. Niranjan called krishn Ji
-through his Surti. In Surti, Krishan Ji meditated on
-Niranjan at a place far away from Heaven where there is
-no existence of shunya, sun, moon and the like. He said,”
-O Nirakar Niranjan! You reside in all. You are the creator
-of the 5 materials as well as of Shunya. You yourself are
-Brahma, Vishnu, Mahesh, the beginning and the end, the
-Gods and the like. Please give me your dictates.” Krishn Ji
-heard a word from across the skies which said that he had
-sent him to annihilate the demonic men thereby giving
-relief to the earth.
+Krishn Ji, with the help of the Pandvas, made all the armies of the Kaurvas and the Pandvas suffer death. Even the great donor like Karun, Ganga Puttar Bhisham and the Guru Daronacharya were killed. He caused all this to happen by creating misconceptions and misunderstandings in the minds of others.
+Only the Pandvas survived. Niranjan called krishn Ji through his Surti. In Surti, Krishan Ji meditated on Niranjan at a place far away from Heaven where there is no existence of shunya, sun, moon and the like. He said,” O Nirakar Niranjan! You reside in all. You are the creator of the 5 materials as well as of Shunya. You yourself are Brahma, Vishnu, Mahesh, the beginning and the end, the Gods and the like. Please give me your dictates.” Krishn Ji heard a word from across the skies which said that he had sent him to annihilate the demonic men thereby giving relief to the earth.
+```text
 Krishna Kahey Sunu Purush Purana
 Kal Abhey Kaha Mor Thikana
+```
 Krishn Ji asked as to what was his own position on
 the earth. Niranjan said that he is his part and resided in
 him.
@@ -3091,41 +2392,20 @@ Niranjan asked Krishna to destroy the Yadavas and
 also the Gopikas and to finish them all. In the mortal
 world, he should kill all the unjust, evil natured and
 powerful persons through even deceitful ways.
-This has to be done again and again till the short
-term Kali Yug appears. In Kali Yug the man will have a
-weak body and a short span of life. In this period, it is you
-who will be worshiped and things will happen as per your
-will. That is why you have been empowered to rule the
-earth. Establish your rule at Jagan Nath without any delay
-because you will have to leave your body before the
-arrival of Sahib Kabir.
+This has to be done again and again till the short term Kali Yug appears. In Kali Yug the man will have a weak body and a short span of life. In this period, it is you who will be worshiped and things will happen as per your will. That is why you have been empowered to rule the earth. Establish your rule at Jagan Nath without any delay because you will have to leave your body before the arrival of Sahib Kabir.
 
 
-Shri Krishn was astonished to know of it in his
-meditation. He asked as to who Sahib Kabir was before
-whose arrival he had to leave his body. Niranjan, the
-creator, told him that all the Rishi Munies, Gunn,
-Gandharb etc. would come to have food when the Pandvas
-will perform the Jajya after attaining victory in war. But
-the Yagya won’t reach its final completion. This will
-happen because none among those present there would be
-found to have the knowledge about the real and true Naam
-related to Param Purush. In Kal Yug, only Sahib Kabir
-will describe the glory of Naam. With the spiritual
-knowledge related to Param Purush, Supuch, the disciple
-of Sahib Kabir, will make the Yagya reach its completion
-after partaking the food. He himself will remain as his
-companion. He also said that during his incarnation as
-Ram, he had killed Bali. That Bali as incarnation of
-Veyad, will take revenge with him. After this, Krishan Ji,
-reached the city of Dwaraka.
+Shri Krishn was astonished to know of it in his meditation. He asked as to who Sahib Kabir was before whose arrival he had to leave his body. Niranjan, the creator, told him that all the Rishi Munies, Gunn, Gandharb etc. would come to have food when the Pandvas will perform the Jajya after attaining victory in war. But the Yagya won’t reach its final completion. This will happen because none among those present there would be found to have the knowledge about the real and true Naam related to Param Purush. In Kal Yug, only Sahib Kabir will describe the glory of Naam. With the spiritual knowledge related to Param Purush, Supuch, the disciple of Sahib Kabir, will make the Yagya reach its completion after partaking the food. He himself will remain as his companion. He also said that during his incarnation as Ram, he had killed Bali. That Bali as incarnation of Veyad, will take revenge with him. After this, Krishan Ji, reached the city of Dwaraka.
 As directed by Niranjan, he got the Yagya done by
 Pandavas. It was performed due to killing of Kinsman.
 Krishn ji instructed for serving food.
+```text
 Baithey Gandharva Dev Gan, Rishi Munivar Sab Jhar
 Sab Mili Kinha Bhojan, Icha Ke Anusaar
+```
 All the Rishis, Munis and Devatas partaken food to
 their satisfaction.
+```text
 Bhojan Bhaye Ghant Baja,
 Rai Yudhishthir Ko Bhayi Laja.
 Aho Krishna Ka Karo Upaai,
@@ -3138,8 +2418,6 @@ Aanab Tahi Yagya Nivtai,
 Deen Bhav Kar Tahi Livaai.
 Krishna Vachan Suni Yudhishthir Raya,
 Bhagat Bulavan Doot Pathaya.
-
-
 Suni Ke Doot Chale Chahu Desha ,
 Nahi Koi Bhaktan Betey Vesha.
 Chale Bheem Tab Lagi Na Bara,
@@ -3148,20 +2426,15 @@ Baithey Supach Tahi So Kahai,
 Nirgun Bhakt Yaha Koi Rahayi.
 Kahey Supach Nirgun Ko Jano,
 Satguru Mahima Sada Bakhano.
-All have taken the taken the food including Krishn
-however the bell did not ring to indicate satisfactory
-conclusion of Yagya therefore, Raja Yudhishthir felt sense
-of Shame. Krishnji told to look for a devotee who sings
-the glory of Satguru. Bring him with all reverence and
-offer him food. Listening to Krishna, Yudhishthir sent a
-messenger to look for a devotee of Satguru but they could
-not locate anyone. Then Bhima went on search and
-reached Kashi and he saw a devotee named Supach.
-Supach spent all the time singing the glory of Satguru.
+```
+All have taken the taken the food including Krishn however the bell did not ring to indicate satisfactory conclusion of Yagya therefore, Raja Yudhishthir felt sense of Shame. Krishnji told to look for a devotee who sings the glory of Satguru. Bring him with all reverence and offer him food. Listening to Krishna, Yudhishthir sent a messenger to look for a devotee of Satguru but they could not locate anyone. Then Bhima went on search and reached Kashi and he saw a devotee named Supach. Supach spent all the time singing the glory of Satguru.
+```text
 Kahey Bheem Sun Harijan, Kripa Karo Mam Sanga.
 Chalo Jaha Hari Baithey, Swami Baal Govinda.
+```
 Bhima addressed him- Oh Harijan! Be graceful, come
 to the place of Prabhu Hari.
+```text
 Kahey Supach Prabhu Kaisey Kahau
 Kalhi Jaan Krishna Pariharau.
 Sunati Bheem Kop Tab Kinha,
@@ -3174,17 +2447,15 @@ Krishnahi Kahey Kal Ki Fasi,
 Kinhi Aai Bhakt Ki Hansi.
 Maryo Nahi Par Tav Bai Mana,
 Yaha Sunkar Bihasey Bhagwana.
-Supach enquires as to how can he call him as Prabhu!
-and said all are form of Kal. Listening to this, Bhima got
-irritated and walked away abusing him. On return, he told
-
-
-Krishn ji, for the fear of you, I did not kill him.Listening
-to Bhima, Krishn ji smiled.
+```
+Supach enquires as to how can he call him as Prabhu! and said all are form of Kal. Listening to this, Bhima got irritated and walked away abusing him. On return, he told Krishn ji, for the fear of you, I did not kill him.Listening to Bhima, Krishn ji smiled.
+```text
 Jiv Yudhishthir Ved Gey, Tum Aano Gahi Pai.
 Agya Manic Hale Tab, Aye Yudhishthir Rai.
+```
 Then Krishnaji asked Yudhishthir to go and request.
 Following his command, he went to Supach.
+```text
 Aho Sant Tajiye Apradha, Adham Udaran Suniyat Sadha.
 Chalo Swami Mere Graham Aaju,
 Kripa Karo Mam Hovey Kaju.
@@ -3197,27 +2468,18 @@ Bhojan Karkey Supach Bhayo ,
 Tada|Bajyo Ghant Shabdh Bhayo Gaada.
 Bajyo Ghant Yagya Bhayo Pura, Kautak Dekhi Rishigan Bhula
 Puran Yagya Krishna Jab Jana, Tabhi Kinha Dwarika Payana
-He pleaded with Supach to forgive him for the
-mistake and requested Supach to grace his house which
-will benefit his family. Supach asked- Oh King of Pandav,
-what work do you have? Yudhishthir said- You are a
-Paramarthi (Spiritualist) therefore I am confident that you
-will come and grace us. Pleased with the Yudhishthir,
-Supach went along with him, King Yudhishthir washed
-the feet of Supach and served him with five varities of
-food. When Supach pertook the meal and just stood up,
-the bell rang indicating the successful completion of the
-Yagya. After which completion of Yagya, Krishna
-reached Dwaraka.
+```
+He pleaded with Supach to forgive him for the mistake and requested Supach to grace his house which will benefit his family. Supach asked- Oh King of Pandav, what work do you have? Yudhishthir said- You are a Paramarthi (Spiritualist) therefore I am confident that you will come and grace us. Pleased with the Yudhishthir, Supach went along with him, King Yudhishthir washed the feet of Supach and served him with five varities of food. When Supach pertook the meal and just stood up, the bell rang indicating the successful completion of the Yagya. After which completion of Yagya, Krishna reached Dwaraka.
+```text
 Buzo Rey Nar Parani, Kya Supchai Adhikar.
 Gan Gandharva Muni Dev Rishi, Sab Mili Kinha Ahaar.
+```
 Oh Men! What is the uniqueness of Supach, when he
 pertook the food, the yagya was fulfilled. The bell did not
 ring even when Gan-Gandharv, Muni, Devta, Rishi and
 Krishna pertook the food.
+```text
 Sab Ke Khaye Ghant Nahi Baja,
-
-
 Dharma Kid Eh Yudhishthir Raja.
 So Sab Rahey Purna Yagya Nahi.
 Namhi Mahima Janat Nahi.
@@ -3227,14 +2489,10 @@ Krishna Shakti Mey Muni Rishi Jula.
 Jan Bhuzi Ke Pandit Bhula.
 Buzo Santo Nam Hamara,
 Naam Bina Kimi Utaro Para.
-When they all took the food, the bell did not rang
-because none of them knew the greatness of Naam.
-Supach knew the greatness of Naam therefore when he
-took the food, the Bell rang and the Yagya was complete.
-The world is devoted to Krishna and others, but Oh wise
-ones, understand our "Naam". No one can escape without
-Satya Naam.
-FOUR GOALS OF LIFE
+```
+When they all took the food, the bell did not rang because none of them knew the greatness of Naam. Supach knew the greatness of Naam therefore when he took the food, the Bell rang and the Yagya was complete. The world is devoted to Krishna and others, but Oh wise ones, understand our "Naam". No one can escape without Satya Naam.
+----
+**FOUR GOALS OF LIFE**
 Sastras talk of four Purusharthas as the goals of life.
 These four duties of man are Dharma, Artha, Kama, and
 Moksha (Righteousness, Wealth, Desire, and Salvation)'
@@ -3252,26 +2510,29 @@ meaningfully. Moksha is reaching that eternal world,
 Amarlok, our final destination- Param moksh.
 ***********************************************
 
-
-```
-```
-## 5. Four Purushratas with Satya Naam
+## Four-Purushratas-with-Satya-Naam
+### Four Purushratas with Satya Naam
 
 Ni-akshar Koi Paar Na Pavey| Kahan Sunnan Se Nyaara Hey||
-What sort of a "Naam" is that? That cannot be
-written or heard.
+What sort of a "Naam" is that? That cannot be written or heard.
+```text
 Ni-akshar Bhed Aanami Kahiye, Aagam Agochar Soyi|
 Taaka Bhed Sant Koi Jaaney, Jakhi Surti Samoyi||
+```
 Only some rare Sant is aware about Naam
 (Soundless Sound); not others.
+```text
 Satyanaam Jaag Se Hey Nyara, Jahava Kaha Na Jayi||
+```
 Sahib Kabir says that this Naam cannot be uttered
 with mouth. It can neither be spoken nor written in
 alphabets.
+```text
 Kaha Na Jaye Likha Na Jayi.
 Teen lokh mey Yum Ka Raaj.
 Chautey Lokh Mey Naam Nirvaan.
 Teen Lokh Mey Pralay Karayi|Chauta Lokh Aamar Hey Bhai
+```
 Whatever is there in the Three Worlds is under the
 rulership of Kaal Purush. Citizen of any country are bound
 by the laws of that country. This is the world of Kaal
@@ -3279,19 +2540,26 @@ Purush. Therefore, his rules and regulations are imposed
 on every being. This is not the world of Soul. Where there
 is Birth and Death, there is Illusion and Karma. Kabir
 Sahib said
+```text
 Yah Sansaar Kaal Ko Desha||
+```
 Kaal Purush is the ruler of this Universe.
+```text
 Yaha Karm Ka Jaal Pasara Hey||
+```
 This universe is full of misery.
+```text
 Yak Lokh Yak Ved Do Dariya Ke Kinarey|
 Saayad Ke Kabhu Mey Hey Sab Jiv Vicharey||
+```
 Here all are under the delusive influence of Kaal
 Purush, deluded by Maya and under the sway of Desires,
 Anger and Lust. The world of Soul, Amarlok is free from
 all the Vices.
+```text
 Avadhu Bagam Desh Humara Hey|
 Ved Kiteb Paar Nahi Pavat, Kahan Sunnan Se Nyara Hey||
-
+```
 
 Wherever Five elements exits, it is bound to
 disintegrate because element destroys other elements.
@@ -3307,8 +2575,10 @@ unaware of the full consequences of Karma. The inner
 vices (Desire, Anger, Greed, Lust, Hate and Pride) impels
 and influences all actions. There is a well meaning Film
 song.
+```text
 Jindagi Kya Hey Gham Ka Dariya|
 Na Jina Yaha Buss Mey, Na Marna Yaha Buss Mey||
+```
 This worldly ocean of life is full of misery. Here
 neither Life is in one's control or his Death. It is evident
 that the Soul is under the grip of antagonistic forces;
@@ -3341,8 +2611,10 @@ Mind wishes that individual Being should not seek the
 Soul. The one who is addressed having Form or Formless
 is the same one who put this Soul into Worldly Delusions.
 Sahib Kabir clearly says:
+```text
 Manhi Niranjan Manhi Omkaar Manhi Hey Kartara||
 Teen Lokh Mey Manhi Viraji| Tahi Na Chinat Pandit Kaaji||
+```
 Niranjan is the ruler of the Three Worlds and has
 all the Wealth in his control. Why is it that, he grants the
 prayer of an Individual with all these things? Because, he
@@ -3356,10 +2628,14 @@ will grant all desires (Son-Daughter, House, Physical
 pleasure and Worldly Wealth) but never the Knowledge of
 Soul. With the Devotion on him, one can attain this
 worldly and other worldly pleasures. Sahib says:
+```text
 Chaar Padart Ek Mag Mahi| Kahey Kabir Koi Janat Naahi||
+```
 Those embraces the Satya-Bhakti of Sant Satguru
 with Naam Diksha, they attains all the four Purushatrhas.
+```text
 Gyaan Dhayan Tehi Mahi Samavey||
+```
 One can attain all the Powers of the Soul(
 Adhyathmic Power). That is why in ancient times, in the
 battle field, they use to enquire as to who is the Guru of
@@ -3367,123 +2643,89 @@ the person in other side. It will indicate the strength and
 the power of that person. There is a good example related
 to this Concentration-Surti. Eklavya, the Tribal Prince
 approached Guru Dronacharya to learn Archery.
-
-
-Dronacharya refused to teach him the lessons. He being a
-hunter, he is likely to harm the Birds and Beasts of the
-Jungle with that skill. He does not want to impart such
-skill, so he told him that he only teaches Royal Princes.
-Eklavya replied that he is also the Prince of a King of
-Forest Hunter but Dronacharya did not give. Eklavya
-made a statue of Dronacharya and concentrating on him
-learnt fine skills of Archery. This Concentration-Surti is
-not an ordinary thing. Therefore, even Humans want to
-draw the power of Paramatma by concentrating on him.
-Just as Electricity is transmitted through a wire, similarly
-these powers can be transmitted through concentration.
+Dronacharya refused to teach him the lessons. He being a hunter, he is likely to harm the Birds and Beasts of the Jungle with that skill. He does not want to impart such skill, so he told him that he only teaches Royal Princes. Eklavya replied that he is also the Prince of a King of Forest Hunter but Dronacharya did not give. Eklavya made a statue of Dronacharya and concentrating on him learnt fine skills of Archery. This Concentration-Surti is not an ordinary thing. Therefore, even Humans want to draw the power of Paramatma by concentrating on him. Just as Electricity is transmitted through a wire, similarly these powers can be transmitted through concentration.
 Even, the mother of Gopichand asked him to
 anchor on a strong nail. He said that he is living as a
 Sanyasi. Which strong nail you are talking about? She
 asked him to be in the company of a complete Guru and to
 meditate on him. He is the strongest nail of support.
+```text
 Satguru Din Dayalji, Tum Lagh Meri Dawdh
 Jaisey Kaag Jahaj Par, Sujat Katahu Na Taor||
+```
 Therefore, the concentration is the Soul. Wherever,
 we keep our unwavering concentration that we will attain.
+```text
 Jaaki Surat Laag Rahe Jahava,
 Kahey Kabir Pahunchau Tahava
+```
 Satguru is a strong anchor. Therefore, one should
 keep their concentration on him while engaged in all
 activities. That way we will stay unaffected by Maya.
 Even Vedas and Scriptures say;
+```text
 Dhyan Moolam Guru Roopam, Pooja Moolam Guru Padakam,
 Mantra Moolam Guru Vakyam, Moksha Moolam Guru Kripa||
+```
 Meditate on Real Guru (Satguru). Worship his
 Holy feet. Take his word as Mantra. Attain Salvation by
 his Grace.
-Therefore, Satguru is full and free manifestation of
-power of eternal Soul. One pointed concentration is Soul.
-Soul has the power to see, to move and to hear. Even
-Vasudev Krishanji says-'Aantmatta Saagta||' wherever one
-
-
-concentrates at death, there they will reach. If one
-concentrates on Satguru, they will reach him. It is
-impossible to concentrate on Supreme Purusha because he
-is behond comprehension and Mind cannot reach him.
-Therefore, she asked Gopichand to be in the Satsang of a
-complete Guru. Sahib Kabir says;
+Therefore, Satguru is full and free manifestation of power of eternal Soul. One pointed concentration is Soul. Soul has the power to see, to move and to hear. Even Vasudev Krishanji says-'Aantmatta Saagta||' wherever one concentrates at death, there they will reach. If one concentrates on Satguru, they will reach him. It is impossible to concentrate on Supreme Purusha because he is behond comprehension and Mind cannot reach him. Therefore, she asked Gopichand to be in the Satsang of a complete Guru. Sahib Kabir says;
+```text
 Saat Dweep Nav Khand Mey, Guru Sey Bada Na Koy|
+```
 If the Guru is complete, one will attain completion.
-There is none in the Universe who is greater than such
-Guru.
+There is none in the Universe who is greater than such Guru.
+```text
 Guru Milne Se Jagada Katam Ho Gaya||
-The complete power of Soul will manifest from
-within the individual with the grace of Guru. 90% of the
-children will inherit the diesease of their mother acquired
-in the womb, because the body of the child is created from
-the blood supply of the Mother. The food for child is
-given through the Naval, to which Naadis are connected.
-Therefore, whatever defficiencies Mother has will afflict
-the foetus. Similarly, concentration on the Satguru will
-draw his powers and mould the disciple like the Guru
-himself.
-Therefore, Veda asks to meditate on one's Guru. It
-does not say; meditate on Ganeshji, meditate on Vishnuji,
-meditate on Shakti ji, meditate on Shivji. Sahib Kabir
-says;
+```
+The complete power of Soul will manifest from within the individual with the grace of Guru. 90% of the children will inherit the diesease of their mother acquired in the womb, because the body of the child is created from the blood supply of the Mother. The food for child is given through the Naval, to which Naadis are connected. Therefore, whatever defficiencies Mother has will afflict the foetus. Similarly, concentration on the Satguru will draw his powers and mould the disciple like the Guru himself.
+Therefore, Veda asks to meditate on one's Guru. It does not say; meditate on Ganeshji, meditate on Vishnuji, meditate on Shakti ji, meditate on Shivji. Sahib Kabir says;
+```text
 Saar Shabdh Sabse Hey Nyaara, Bhed Na Pavey Koi
 Chaar Vedh Mey Bhrama Bhuley, Aadi Naam Na Payi.
+```
 Its a great revelation.
+```text
 Bhramadik Shiv Sankadik, Aj Surr Kaal Ke Gunn Gavahi|
 Jo Kal Jivan Ko Satavahi, Tasu Bhakti Drudavahi||
+```
 Pandits and Kazis are unaware, all the three worlds
 are in the domain of Kalpurush (Lord of Death). His
 Demonic power runs the world. The same evil force has
 bound the Soul within its power. Even if one takes 50 dips
 in a Holy stream, this power will not free the Soul.
+```text
 Bhavsagar Ka Paar, Naam Bina Pavey Nahi||
-
+```
 
 None can cross the worldly ocean of Birth and
 Death without Sajeevan Naam. Further he says-
+```text
 Aadi Naam Ki Aadbhut Mahima, Surti Nirati Se Payi|
 Sahib Kabir Amarpur Vasi, Hansa Lokh Patayi||
+```
 One reaches that Unique Holy and alive Naam with
 Surati and Nirati. Sahib Kabir says that he has desendent
 from the Amarlok (beyond the expanding Universe).
+```text
 Paras Surati Sant Ke Pasa||
+```
 The Guru who has his Paras Surati manifested can
 also help disciple manifest his Surati (Concentration).
 Sahib Kabir affirms-
+```text
 Paras Mein Aru Sant Mein, Tu Bado Antro Jan|
 Veh Loha Kanchan Kare, Veh Karle Aap Saman||
+```
 Satguru will transform his disciple like himself. A
 real Mahatma-Sant will have this Paras Surti with them.
 This Paras Surti will free and awaken the Soul.
+```text
 Koti Janam Ka Paant Ta, Guru Paal Mey Diya Pahunchay.
-It is said, without a Guru one cannot attain wisdom.
-What is this Wisdom? If I ask How they will attain this
-wisdom from Guru they say that they attain wisdom to
-discriminate between good and evil. No, one can attain
-this wisdom with the help of elders of the family.
-However, one attains knowledge of Soul (Adhyatmik
-Wisdom) only from a Real Guru. The inner vices like
-Anger, Hatred, Lust,etc cannot come under control of such
-persons. After Guru bestoves the Naam, arising of such
-tendencies in mind, can be easily apperhended, by the
-manifestation of Wisdom of the Soul. Then it can be read
-and understood and one becomes aware of activities of the
-Mind. When in Anger, one gets engaged in action and
-later we repent for the wrong. However, after the Naam
-Diksha we become aware of the game of these vices
-beforehand. When Anger and Hatred arises, we become
-alert. This is Wisdom-Gyaan. Therefore, one's
-concentration is awakened for eternity. In this state, all
-
-
-becomes clear. Otherwise, the entanglement of Mind is
-difficult to comprehend. Sahib says-
+```
+It is said, without a Guru one cannot attain wisdom. What is this Wisdom? If I ask How they will attain this wisdom from Guru they say that they attain wisdom to discriminate between good and evil. No, one can attain this wisdom with the help of elders of the family. However, one attains knowledge of Soul (Adhyatmik Wisdom) only from a Real Guru. The inner vices like Anger, Hatred, Lust,etc cannot come under control of such persons. After Guru bestoves the Naam, arising of such tendencies in mind, can be easily apperhended, by the manifestation of Wisdom of the Soul. Then it can be read and understood and one becomes aware of activities of the Mind. When in Anger, one gets engaged in action and later we repent for the wrong. However, after the Naam Diksha we become aware of the game of these vices beforehand. When Anger and Hatred arises, we become alert. This is Wisdom-Gyaan. Therefore, one's concentration is awakened for eternity. In this state, all becomes clear. Otherwise, the entanglement of Mind is difficult to comprehend. Sahib says-
+```text
 Gan Gandharv Rishi Muni Aru Deva,
 Sab Mil Lag Niranjan seva.
 Peer Paigambhar Kutub Aouliya,
@@ -3492,25 +2734,27 @@ Sidha Sadak Aur Yogi Jatti,
 Aagey Khoj Na Pavey Raati
 Jaay Niranjan Mahi Samaye
 Aagey Ka Koi Bhedh Na Paye||
-All are entangled with the Mind. Mind never
-releases its grip over the Soul. Unwavering concentration
-itself is the Soul (free of elements and its natures).
-Therefore, Even if we try this Mind does not come under
-control; it wanders out in this world. Its grip on the Soul is
-very powerful.
+```
+All are entangled with the Mind. Mind never releases its grip over the Soul. Unwavering concentration itself is the Soul (free of elements and its natures). Therefore, Even if we try this Mind does not come under control; it wanders out in this world. Its grip on the Soul is very powerful.
+```text
 Tann Tir Mann Tir Bachan Tir, Surati Nirati Tirr Hoy|
 Kahey Kabir Uss Palak Ko, Kalp Na Pavey Koy||
+```
 Even those who did very hard penance, were
 entangled in the network of Kalpurush. They could not
 escape from the grip of Mind.
+```text
 Manhi Niranjan Manhi Omkar Manhi Hey Kartara||
+```
 Formless Mind itself is Formless God of Death. He
 is the Omkar and He is the Doer.
 This way, all the Souls are within his boundary and
 control. He can give material and physical pleasures.
 However, He does not want to give the awareness of Soul.
 This can be attained only with the grace of a Real Satguru.
+```text
 "Hai Yaha Satguru Bina Koi, Moksha Ka Daata Nahi|"
+```
 It is not a simple statement that It is no one but a
 Satguru, who is the giver of salvation.
 
@@ -3518,8 +2762,8 @@ Satguru, who is the giver of salvation.
 *************************************************
 
 
-
-## 6. NAAM Diksha (Initiation)
+## NAAM Diksha Initiation
+### NAAM Diksha (Initiation)
 
 When a shopkeeper says that the pepper in my shop
 can't be found anywhere else and tells about its originating
@@ -3536,29 +2780,8 @@ are assured-
 1. Soul and Mind are separated from each other.
 2. The attraction of the world declines.
 3. There will be complete security.
-   The outcome is in front of you. Every Naami
-   (Initiate) changes after getting Naam Diksha. Other
-   human are dancing on the waves of mind. Mind is very
-   effective but it has no control over my Naami. After
-   getting Naam, his Soul awakens. My Naamis find
-   themselves to be different from others, they find other
-   people Ignorant, one moment they are in good mood and
-   in another they are in despondent and behave madly. All
-   these are because of the powerful grip of the Mind over
-   them.
-   My Naami gets hold over their mind. During the
-   time of Naam Dhan, I separate the Soul from Mind. I
-   separate them, then you are able to understand Mind’s
-   influence. This work is most difficult in this world which
-   cannot be accomplished by everyone. When you begin to
-   understand Mind, the world fades away and attraction dies
-   out. Then, every Naami feels that there is a protective
-   force accompanying him all the time and everywhere. The
-   truth is that, the thing I possess does not exist anywhere in
-
-
-this universe. This thing frees the grip of the world of
-mind and you are able to understand the nature of Soul.
+The outcome is in front of you. Every Naami (Initiate) changes after getting Naam Diksha. Other human are dancing on the waves of mind. Mind is very effective but it has no control over my Naami. After getting Naam, his Soul awakens. My Naamis find themselves to be different from others, they find other people Ignorant, one moment they are in good mood and in another they are in despondent and behave madly. All these are because of the powerful grip of the Mind over them.
+My Naami gets hold over their mind. During the time of Naam Dhan, I separate the Soul from Mind. I separate them, then you are able to understand Mind’s influence. This work is most difficult in this world which cannot be accomplished by everyone. When you begin to understand Mind, the world fades away and attraction dies out. Then, every Naami feels that there is a protective force accompanying him all the time and everywhere. The truth is that, the thing I possess does not exist anywhere in this universe. This thing frees the grip of the world of mind and you are able to understand the nature of Soul.
 
 Note :
  At Naam Initiation, enter with an attitude of surrender, be
@@ -3591,89 +2814,40 @@ volunteers.
 ***************************************************
 
 
+## SATGURU SRI MADHU PARAMHANS SAHIB SAYS
+### SATGURU SRI MADHU PARAMHANS SAHIB SAYS:
+1. " I Do Not Consider Myself As Higher Than You."
+(All the Souls are from one Param Purush Therefore all are Poornam-Complete. Adhyatmik Bhava.)
 
-SATGURU SRI MADHU PARAMHANS
-SAHIB SAYS:
-1." I Do Not Consider Myself As Higher Than
-You."
-(All the Souls are from one Param Purush Therefore all
-are Poornam-Complete. Adhyatmik Bhava.)
-
-2." In All The Three Times, Past, Present And The
-Future No One Has Transcended My Level".
+2. " In All The Three Times, Past, Present And The Future No One Has Transcended My Level".
 (When a drop of water falls into that ocean, it becomes
 ocean itself, nothing else. It does not matter what time it
 falls, In the Past, Present, or Future)
 
-3. "The Thing I Possess Does Not Exist any where
-   In this Universe".
-   ( Kabir Sahib says Paras Surti Sant Ke Pasa|.There is a
-   power in the Surti with Sant Satguru. 'Sajeevan Naam' is
-   given by Satguru with his Surati'. This Naam Gives Param
-   Moksh. Kaha Na Jahi, Likha Na Jayi. Bin Sarguru Koyi
-   Nahin Payi|.True Naam can neither be spoken nor reduced
-   to writing. None can get it without a Satguru Par Lagan
-   Ko Her Koyi Chahe, Bin Satguru Koyi Par Na Pavey|.All
-   want to cross the ocean of births and deaths here but none
-   finds the way out without a Satguru.)
+3. "The Thing I Possess Does Not Exist any where In this Universe".
+( Kabir Sahib says Paras Surti Sant Ke Pasa|.There is a power in the Surti with Sant Satguru. 'Sajeevan Naam' is given by Satguru with his Surati'. This Naam Gives Param Moksh. Kaha Na Jahi, Likha Na Jayi. Bin Sarguru Koyi Nahin Payi|.True Naam can neither be spoken nor reduced to writing. None can get it without a Satguru Par Lagan Ko Her Koyi Chahe, Bin Satguru Koyi Par Na Pavey|.All want to cross the ocean of births and deaths here but none finds the way out without a Satguru.)
 
 ***************************************************
 **************************************************
 
+## Towards the Truth
+### Towards the Truth
 
-```
-```
-## 7. Towards the Truth
-
-The one who sacrifices the individualised "I”
-consciousness from the Soul can comprehend awareness
-of Atmic principle. It is not difficult to sacrifice things.
-home, wife, husband, wealth, fame many people has
-sacrificed these but not the individual “I” (I-ness). This
-individual self which is based on the perception “I am so
-and so” refers to the individual “I”. For this very reason
-you are not able to realize your Soul principle. In
-forgetting this I-ness, remains the realization of Soul. That
-is why; the realized persons are very rare to find in this
-world. Believing that “I am the body”, Atma is engaged in
-breathing activity for the sustenance of body. Breathing
-down the air in to this body, it keeps the body alive. The
-nearness of complete, alive Satguru enables the breathing
-to turn upward and outward through the body. This
-process enables Surti (concentration) and Nirati (the
-activity of breathing) to combine and to prevail the
-identity of “I” consciousness, ultimately. With this, the
-concentration becomes one pointed and peaceful, the “I”
-identification will be replaced with Soulfulness.
+The one who sacrifices the individualised "I” consciousness from the Soul can comprehend awareness of Atmic principle. It is not difficult to sacrifice things. home, wife, husband, wealth, fame many people has sacrificed these but not the individual “I” (I-ness). This individual self which is based on the perception “I am so and so” refers to the individual “I”. For this very reason you are not able to realize your Soul principle. In forgetting this I-ness, remains the realization of Soul. That is why; the realized persons are very rare to find in this world. Believing that “I am the body”, Atma is engaged in breathing activity for the sustenance of body. Breathing down the air in to this body, it keeps the body alive. The nearness of complete, alive Satguru enables the breathing to turn upward and outward through the body. This process enables Surti (concentration) and Nirati (the activity of breathing) to combine and to prevail the identity of “I” consciousness, ultimately. With this, the concentration becomes one pointed and peaceful, the “I” identification will be replaced with Soulfulness.
 NOTE :
-* Concentration on the center of your forehead (trikuti)
-  will never lead to realization of Soul.
-  *All the worldly Religions and Religious scriptures talk
-  about earning the merits with good deeds, doing various
-  yogic practices. Further they talk about three worlds but
-  Kabir Sahib’s words of wisdom directs towards simple
-  and easy path of permanent salvation.
-  *Just as helicopter, airplane, airship and spacecraft lifts
-  through the air, there are many ways to travel in the inner
-  world. There are different bodies available for travel with
-  various speeds and distance. Just like helicopter cannot
-  reach the level of pathfinder, these bodies have limitation
-  in reach. Helicopter cannot reach outer planets. Similarly,
-
-
-Sagun (form full), Nirgun (formless) worship and all kinds
-of yoga cannot redeem you from the worldly ocean of
-Misery. Naam (boat of Satguru) has the capacity to take
-the Soul beyond these three worlds and reach Amarlok.
-*To concentrate on any point within, the body during
-meditation is illusionary and deceptive.
+* Concentration on the center of your forehead (trikuti) will never lead to realization of Soul.
+* All the worldly Religions and Religious scriptures talk about earning the merits with good deeds, doing various yogic practices. Further they talk about three worlds but Kabir Sahib’s words of wisdom directs towards simple and easy path of permanent salvation.
+* Just as helicopter, airplane, airship and spacecraft lifts through the air, there are many ways to travel in the inner world. There are different bodies available for travel with various speeds and distance. Just like helicopter cannot reach the level of pathfinder, these bodies have limitation in reach. Helicopter cannot reach outer planets. Similarly, Sagun (form full), Nirgun (formless) worship and all kinds of yoga cannot redeem you from the worldly ocean of Misery. Naam (boat of Satguru) has the capacity to take the Soul beyond these three worlds and reach Amarlok.
+* To concentrate on any point within, the body during meditation is illusionary and deceptive.
 * Five mudras and its names are within the body and the
   soham is also within this. That is why Sahib had spoken
   of bodiless Naam (Videha Naam). He said Soham is not
   true Naam.
+```text
   Jo Jann Hoi Hey Jahari, Shabd Lehu Bilgaye,
   Soh Soh Jap Mua, Mithya Janam Gavaye.
   Soh Soh Japey Bade Gyaani,Nirakshar ki Khabar na Jani.
+```
 * To meditate on any point within the body will not
   manifest Adhyathmic Shakti but it may manifest Divya
   Shakti. Manifesting any power within the body is the
@@ -3686,23 +2860,16 @@ meditation is illusionary and deceptive.
   sound you need two implements. Where there is sound,
   there is duality and where there is duality, there is illusion.
   Hence sounds are not the ultimate truth.
-* Everyone says that “You need to do something”. Some
-  asks to earn through merits, some says to do sadhna, some
-  ask you to give alms and do sacred acts, some ask you to
-  do yagya ( sacrificial offering), some ask to do yoga and
-  some ask you to go on pilgrimage. But Kabir Sahib’s
-  Sathya bhakti says “You need not to do such things.
-  Whatever has to be done will be done by Satguru. This is
-  completely different path to salvation (mukti). Because
-  with one’s own efforts and meritorious deeds, one cannot
-  cross this worldly ocean of life.
+* Everyone says that “You need to do something”. Some asks to earn through merits, some says to do sadhna, some ask you to give alms and do sacred acts, some ask you to do yagya ( sacrificial offering), some ask to do yoga and some ask you to go on pilgrimage. But Kabir Sahib’s Sathya bhakti says “You need not to do such things. Whatever has to be done will be done by Satguru. This is completely different path to salvation (mukti). Because with one’s own efforts and meritorious deeds, one cannot cross this worldly ocean of life.
+```text
   Saath Dweep Nav Khand Mey, Guru Se Bada Na Koi,
-
-
-Karta Karey Na Kar Sakey, Guru Karey So Hoi.
+   Karta Karey Na Kar Sakey, Guru Karey So Hoi.
+```
 * If your Guru is a householder, do not expect any
   spiritual (adhyathmic) benefit from him.
+```text
   Bandhe Kho Bandha Miley Toh Ghaat Chudavey Khon||
+```
   How can one who himself is under bondage free another.
 * I don’t have to give you wisdom after initiation
   (Naamdaan). Know that it is given. Nothing left to give,
@@ -3719,20 +2886,12 @@ Karta Karey Na Kar Sakey, Guru Karey So Hoi.
 * Auspicious sight of Satguru is very useful for he
   bestows his powerful Adhyathmic rays by ways of sight,
   touch, and speech on his disciple present.
-* Those Gurus in position of householder, if they claim
-  themselves to be a Sant, it is but deception on you. He
-  cannot be a Sant. A true Sant will not indulge in fleeting
-  pleasure even forgetfully. Those who are indulging in
-  sensual pleasure are stuck in Maya. It only means he has
-  not attained a true Athmic bliss. One who is merged in
-  Parampurush assumes his form. For him all are his
-  children. That is why father does not marry his daughter
-  and he does not indulge in sensual pleasure.
+* Those Gurus in position of householder, if they claim themselves to be a Sant, it is but deception on you. He cannot be a Sant. A true Sant will not indulge in fleeting pleasure even forgetfully. Those who are indulging in sensual pleasure are stuck in Maya. It only means he has not attained a true Athmic bliss. One who is merged in Parampurush assumes his form. For him all are his children. That is why father does not marry his daughter and he does not indulge in sensual pleasure.
 
 ***************************************************
 
-
-GLOSSARY
+## GLOSSARY
+### GLOSSARY
 Aavaranasakti - The veiling power.
 Achethana - unconscious; form of inertia.
 Adhyarupa - superimposition of the unreal
@@ -3771,8 +2930,6 @@ recluse in the forest), and the Sanyaasin (the ascetic).
 Asritha - Disciple.
 Asthi - That which is.
 Asthika - One who believes in God, scriptures and/ the Guru.
-
-
 Asthira - Impermanent.
 Asuras - Evil forces, the evil-minded, demonic.
 Asuric - Asuric character is that of a person with pride,
@@ -3811,8 +2968,6 @@ Dasendriyas - The ten organs, ten senses.
 Deha - Body.
 Deha Dharma - Dharma of the body.
 Dama/Dhama - Self-control; restraining the sense organs
-
-
 Dhana - Wealth.
 Dharana - concentration, singlemindedness,
 Dharma - Righteousness; religion; duty.
@@ -3852,8 +3007,6 @@ Moha - Illusion.
 Moha - Attachment.
 Moksha/Mukthi - Liberation from the cycle of birth and death.
 Mool - Root cause.
-
-
 Muktha Purusha - Liberated Soul.
 Mumukshuthwa - Desire for liberation.
 Naam- Name, Satya Naam
@@ -3892,8 +3045,6 @@ Sanathana Dharma - Eternal religion
 Sankalpasiddha - He whose will prevails.
 Santhi - Peace, equipoise, equanimity.
 Sanyaasi - One who has renounced world,
-
-
 Sant-One who been to Amarlok/Satlok
 Sath - Truth, reality, existence, Immortal.
 Sathwa Guna - Quality of calm, serenity.
@@ -3929,69 +3080,3 @@ Vikaara - Changed, transformed.
 Virat Pralaya - Final Cosmic Disolution.
 Vrittis - Activities or mutations.
 Vyamoha - Delusion
-
-
-```
-```
-Aarti for Satguru
-Arti Karhun Sant Satguru Ki,
-Satguru Satya Nam Dinkar Ki.
-Kam, Karodh, Madd, Lobh Nasavan,
-Moh Rahit Kari Sursari Pawan.
-Harhin Pap Kalimal Ki,
-Arti Karhoon Sant Satguru Ki. Satguru...
-Tum Paras Sangti Paras Tabb,
-Kalimal Grasit Loh Prani Bhav.
-Kanchan Karhin Sudhar Ki,
-Arti Karhoon Sant Satguru Ki. Satguru...
-Bhulehun Jo Jeev Sangti Aveyn,
-Karam Bharam Tehi Bandhi Na Paveyn.
-Bhai Na Rahey Yam Ghar Ki,
-Arti Karhoon Sant Satguru Ki. Satguru...
-Yog Agni Pragti Tin Ke Ghat,
-Gagan Charey Shruti Khule Bajarpat.
-Darshan Hon Hari Her Ki,
-Arti Karhoon Sant Satguru Ki. Satguru...
-Sahas Kanwal Chari Trikuti Aveyn,
-Shunya Shikher Chari Been Bajaveyn.
-Khule Dwar Sat Ghar Ki,
-Arti Karhoon Sant Satguru Ki. Satguru...
-Alakh Agam Ke Darshan Paveyn,
-Purush Anami Jaye Smaveyn.
-Satguru Dev Amar Ki,
-Arti Karhoon Sant Satguru Ki. Satguru...
-Ek Aas Vishwas Tumhara,
-Para Dwar Main Sabb Vidhi Hara.
-Jay, Jay, Jay Guruver Ki, Arti Karhoon Sant Satguru Ki.
-Satguru...
-
-### ***********************************************
-
-
-
-BOOKS IN ENGLISH
-
-01. Satguru Bhakti
-02. The Truth
-03. Meditation on a Real Satguru Ensures Permanent
-    Salvation
-04. The Whole Game Is That of Concentration
-05. With out Soul Realisation Man Has to Wander
-06. Atma-An Exposition (Atam Bhodh)
-07. Satguru Bhakti (Uni###
-08. Crossing the Ocean Of Life with the Grace Of
-    Satguru
-09. Amrit Vani
-10. Naam-Words of This World Cannot Give Real
-    Salvation
-11. The Real Naam Is a Hidden One
-12. Stealer of Devotion
-13. Seventy Dissolutions on the Path
-14. The Secret of Salvation
-15. Anurag sagar Vani
-16. The Real Disciple
-17. The Formless Mind
-18. Now He is a Disciple of Satguru
-19. Changing the World Spiritually
-
-
