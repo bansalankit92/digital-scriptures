@@ -40,19 +40,25 @@ export default function Transliteration() {
             let slug;
             if (slugStartsWith && x.split(" ")[0] === slugStartsWith) {
                 // save content as document
+                // redundant code as below
+                // copy code it should be same.
                 if (doc?.title && doc?.body?.length > 0) {
                     const body = doc.body.join("  \n");
                     arr.push({...doc, body});
+                    setFileCount(doc.count)
                     doc=JSON.parse(JSON.stringify(emptyDoc));
+
                 }
                 //new slug
                 doc.slug = x.replaceAll("#", "").replaceAll(".", "").trim().toLowerCase().replaceAll(" ", "-");
             } else {
                 if (x.split(" ")[0] === (filesStartWith)) {
                     // redundant code
+                    // copy code it should be same.
                     if (doc?.title && doc?.body?.length > 0) {
                         const body = doc.body.join("  \n");
                         arr.push({...doc, body});
+                        setFileCount(doc.count)
                         doc=JSON.parse(JSON.stringify(emptyDoc));
                     }
 

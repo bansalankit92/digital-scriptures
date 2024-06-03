@@ -599,7 +599,7 @@ Khak Ho Guru Ke Charan Mein, Tab Tujhe Manjil Mile.
 Surrender yourself fully at the feet of your Guru to reach your goal.
 ----
 
-### What is the proof of the fact that the power of Nam will make it easy to follow these principles?
+### What is the proof of the fact that the power of Naam will make it easy to follow these principles?
  You can check our Naamis. Try to make a distinction between their previous and the present life style. Excepting those who are not observing the principles in letter and spirit, you won’t find such people anywhere else. An impartial study will give you the needed proof.
 
 
@@ -811,6 +811,7 @@ Sahib Kabir offered salutations to Param Purush and decended to free the Jivas f
 Sahib Kabir comes in to the world of Niranjan in every Yuga to free the Jivas. When he came to the universe for the first time (by the name ‘Satsukrit’), he remained there for one hundred years. Nevertheless, he failed to take any Jiva with him.
 When Param Purush asked him the reason for not bringing any Jiva, he replied that one whom he made the idea clear in the morning, forgot all about it in the evening and one whom he made the idea clear in the evening, forgot about it in the morning. Then Param Purush handed over to him a hidden thing (Sajeevan Naam ) saying Kaal will be unable to exercise any influence on one who would get blessed with it.
 ***********************************
+
 ### Is it a sinful act to seek the shelter of some other Guru after shunning the first one?
 No, it is not so. If you find that your Guru is not
 a Sant Satguru, Shun him and go in search of some perfect
