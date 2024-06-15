@@ -45,7 +45,6 @@ export default function Transliteration() {
                 if (doc?.title && doc?.body?.length > 0) {
                     const body = doc.body.join("  \n");
                     arr.push({...doc, body});
-                    setFileCount(doc.count)
                     doc=JSON.parse(JSON.stringify(emptyDoc));
 
                 }
@@ -58,12 +57,10 @@ export default function Transliteration() {
                     if (doc?.title && doc?.body?.length > 0) {
                         const body = doc.body.join("  \n");
                         arr.push({...doc, body});
-                        setFileCount(doc.count)
                         doc=JSON.parse(JSON.stringify(emptyDoc));
                     }
-
-
                     count++;
+                    setFileCount(count)
 
                     const title = x.replaceAll("#", "").replaceAll(".", "").trim();
                     // console.log(title);
