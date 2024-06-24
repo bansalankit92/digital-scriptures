@@ -136,27 +136,27 @@ const config = {
                         ]
                     },
 
-                    // {
-                    //     label: 'Sahibji Books',
-                    //     items: [
-                    //         {
-                    //             to: '/docs/sahib-bhajanawali',
-                    //             label: 'Bhajanawali - भजनावली',
-                    //         },
-                    //     ]
-                    // },
-                    // {
-                    //     label: 'Spiritual Question & Answers',
-                    //     items: [
-                    //         {
-                    //             to: '/docs/spiritual-qna-en',
-                    //             label: 'English',
-                    //         }, {
-                    //             to: '/docs/spiritual-qna-hi',
-                    //             label: 'Hindi',
-                    //         },
-                    //     ]
-                    // }
+                    {
+                        label: 'Sahibji Books',
+                        items: [
+                            {
+                                to: '/docs/sahib-bhajanawali',
+                                label: 'Bhajanawali - भजनावली',
+                            },
+                        ]
+                    },
+                    {
+                        label: 'Spiritual Question & Answers',
+                        items: [
+                            {
+                                to: '/docs/spiritual-qna-en',
+                                label: 'English',
+                            }, {
+                                to: '/docs/spiritual-qna-hi',
+                                label: 'Hindi',
+                            },
+                        ]
+                    }
                     // {
                     //   type: 'search',
                     //   position: 'right',
