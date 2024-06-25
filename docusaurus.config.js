@@ -8,6 +8,7 @@ import {themes as prismThemes} from 'prism-react-renderer';
 
 /** @type {import('@docusaurus/types').Config} */
 const config = {
+    noIndex: true, // Defaults to `false`
     title: 'Satya Bhakti',
     tagline: 'Unveiling the Path to Eternal Devotion',
     favicon: 'img/favicon.ico',
@@ -59,9 +60,9 @@ const config = {
                 theme: {
                     customCss: './src/css/custom.css',
                 },
-                gtag: {
-                    trackingID: 'G-596TP1CGSV',
-                },
+                // gtag: {
+                //     trackingID: 'G-596TP1CGSV',
+                // },
             })
         ],
     ],
@@ -95,7 +96,7 @@ const config = {
                 },
                 breadcrumbLabelMap: {} // used to map the breadcrumb labels to a custom value
             },
-
+            noIndex: true,
             metadata: [
                 {
                     name: 'keywords',
